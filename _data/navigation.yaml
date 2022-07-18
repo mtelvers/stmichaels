@@ -1,0 +1,230 @@
+main:
+  - title: About
+    url: /about
+  - title: Baptism
+    url: /resources/baptism
+  - title: Weddings
+    url: /resources/weddings
+  - title: Resources
+    url: /resources
+  - title: World War I
+    url: /wwi
+  - title: Contact
+    url: /contact
+
+about:
+  - title: Services
+    url: /about/services
+  - title: History
+    url: /about/history
+  - title: Stained Glass
+    url: /about/stained-glass
+  - title: Bells
+    url: /about/bells
+  - title: Clock
+    url: /about/clock
+  - title: Halls
+    url: /about/halls
+  - title: Vicars
+    url: /about/vicars
+  - title: Churchwardens
+    url: /about/churchwardens
+  - title: Organists
+    url: /about/organists
+
+resources:
+  - title: APCM
+    url: /resources/apcm
+  - title: Weddings
+    url: /resources/weddings
+  - title: Baptism
+    url: /resources/baptism
+  - title: Prayer
+    children:
+      - title: Lent
+        url: /resources/lent
+      - title: Pentecost
+        url: /resources/pentecost
+      - title: Novena
+        url: /resources/novena
+      - title: Advent
+        url: /resources/advent
+      - title: Rosary
+        url: /resources/rosary
+      - title: Sacred Heart
+        url: /resources/sacred-heart
+      - title: Praying at Home
+        url: /resources/praying-at-home
+  - title: Affiliations
+    url: /resources/affiliations
+
+wwi:
+  - title: "We Will Remember Them"
+    children:
+      - title: Albert Allen Wood
+        url: /wwi/albert-allen-wood
+      - title: Albert Edward Luck
+        url: /wwi/albert-edward-luck
+      - title: Albert Eldridge
+        url: /wwi/albert-eldridge
+      - title: Albert William Court
+        url: /wwi/albert-william-court
+      - title: Albert William Weech Carden
+        url: /wwi/albert-william-weech-carden
+      - title: Alfred Abnett
+        url: /wwi/alfred-abnett
+      - title: Alfred Albert Willard
+        url: /wwi/alfred-albert-willard
+      - title: Alfred Underdown
+        url: /wwi/alfred-underdown
+      - title: Arthur Batchelor
+        url: /wwi/arthur-batchelor
+      - title: Arthur Harold Smith
+        url: /wwi/arthur-harold-smith
+      - title: Arthur Latter
+        url: /wwi/arthur-latter
+      - title: Arthur Thomas Batchelor Edwards
+        url: /wwi/arthur-thomas-batchelor-edwards
+      - title: Arthur Thomas Lott
+        url: /wwi/arthur-thomas-lott
+      - title: Arthur William Hoile
+        url: /wwi/arthur-william-hoile
+      - title: Baden Powell Moore
+        url: /wwi/baden-powell-moore
+      - title: Benjamin Richard Carr
+        url: /wwi/benjamin-richard-carr
+      - title: Charles Edward Rose
+        url: /wwi/charles-edward-rose
+      - title: Charles Frederick Waghorne
+        url: /wwi/charles-frederick-waghorne
+      - title: Charles Leonard Sellen
+        url: /wwi/charles-leonard-sellen
+      - title: Charles Oliver
+        url: /wwi/charles-oliver
+      - title: Charles Stuart Barnes
+        url: /wwi/charles-stuart-barnes
+      - title: Charles White
+        url: /wwi/charles-white
+      - title: Charles William Brown
+        url: /wwi/charles-william-brown
+      - title: Christopher Gibbon
+        url: /wwi/christopher-gibbon
+      - title: Edgar Mitchell
+        url: /wwi/edgar-mitchell
+      - title: Edward James Dyer
+        url: /wwi/edward-james-dyer
+      - title: Edward John Tree
+        url: /wwi/edward-john-tree
+      - title: Edwin Abnett
+        url: /wwi/edwin-abnett
+      - title: Ernest Edward Froud
+        url: /wwi/ernest-edward-froud
+      - title: Ernest Hart
+        url: /wwi/ernest-hart
+      - title: Ernest Matthews
+        url: /wwi/ernest-matthews
+      - title: Frank Mills
+        url: /wwi/frank-mills
+      - title: Frank Potter
+        url: /wwi/frank-potter
+      - title: Frank Vernon King
+        url: /wwi/frank-vernon-king
+      - title: Frederick James Busbridge
+        url: /wwi/frederick-james-busbridge
+      - title: Frederick Lionel Chapman
+        url: /wwi/frederick-lionel-chapman
+      - title: Frederick Skinner
+        url: /wwi/frederick-skinner
+      - title: Frederick Tyler
+        url: /wwi/frederick-tyler
+      - title: Frederick Underdown
+        url: /wwi/frederick-underdown
+      - title: George Alfred Potts
+        url: /wwi/george-alfred-potts
+      - title: George Henry Cooper
+        url: /wwi/george-henry-cooper
+      - title: George James Allman
+        url: /wwi/george-james-allman
+      - title: Harold Morling
+        url: /wwi/harold-morling
+      - title: Harry Burrluck
+        url: /wwi/harry-burrluck
+      - title: Harry Craske
+        url: /wwi/harry-craske
+      - title: Harry Ernest Thurston
+        url: /wwi/harry-ernest-thurston
+      - title: Herbert Beresford White
+        url: /wwi/herbert-beresford-white
+      - title: Herbert Charles Mankelow
+        url: /wwi/herbert-charles-mankelow
+      - title: Herbert David Smith
+        url: /wwi/herbert-david-smith
+      - title: Herbert Sidney Hinkley
+        url: /wwi/herbert-sidney-hinkley
+      - title: Horace Victor Sage
+        url: /wwi/horace-victor-sage
+      - title: James Hursell
+        url: /wwi/james-hursell
+      - title: James Joiner
+        url: /wwi/james-joiner
+      - title: James Walter Capeling
+        url: /wwi/james-walter-capeling
+      - title: John Marshall Youngman
+        url: /wwi/john-marshall-youngman
+      - title: Joseph Hughes
+        url: /wwi/joseph-hughes
+      - title: Leonard Adolphus Springett
+        url: /wwi/leonard-adolphus-springett
+      - title: Leonard Startup
+        url: /wwi/leonard-startup
+      - title: Lewis Foster
+        url: /wwi/lewis-foster
+      - title: Lewis Waters
+        url: /wwi/lewis-waters
+      - title: Percival Stewart Carden
+        url: /wwi/percival-stewart-carden
+      - title: Percy Alfred Humphrey
+        url: /wwi/percy-alfred-humphrey
+      - title: Peter Murray
+        url: /wwi/peter-murray
+      - title: Reginald Wakefield
+        url: /wwi/reginald-wakefield
+      - title: Richard Henry Gardiner
+        url: /wwi/richard-henry-gardiner
+      - title: Robert Oakley Banks
+        url: /wwi/robert-oakley-banks
+      - title: Robert Wilfred Prior
+        url: /wwi/robert-wilfred-prior
+      - title: Rowland Smith
+        url: /wwi/rowland-smith
+      - title: Sidney Lowe
+        url: /wwi/sidney-lowe
+      - title: Thomas Pay
+        url: /wwi/thomas-pay
+      - title: Victor Naughton
+        url: /wwi/victor-naughton
+      - title: Walter Enoch John Carter
+        url: /wwi/walter-enoch-john-carter
+      - title: Walter Richard Busbridge
+        url: /wwi/walter-richard-busbridge
+      - title: William Albert Winter
+        url: /wwi/william-albert-winter
+      - title: William Frank Humphrey
+        url: /wwi/william-frank-humphrey
+      - title: William George Clark
+        url: /wwi/william-george-clark
+      - title: William George Cousens
+        url: /wwi/william-george-cousens
+      - title: William George Thomas Smith
+        url: /wwi/william-george-thomas-smith
+      - title: William Hassack
+        url: /wwi/william-hassack
+      - title: William Hayden
+        url: /wwi/william-hayden
+      - title: William Henry Styles
+        url: /wwi/william-henry-styles
+      - title: William Hook
+        url: /wwi/william-hook
+      - title: William Thomas Smith
+        url: /wwi/william-thomas-smith
+

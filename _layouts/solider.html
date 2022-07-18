@@ -1,0 +1,46 @@
+---
+layout: default
+---
+
+{% if page.header.overlay_color or page.header.overlay_image or page.header.image %}
+  {% include page__hero.html %}
+{% elsif page.header.video.id and page.header.video.provider %}
+  {% include page__hero_video.html %}
+{% endif %}
+
+{% if page.url != "/" and site.breadcrumbs %}
+  {% unless paginator %}
+    {% include breadcrumbs.html %}
+  {% endunless %}
+{% endif %}
+
+<div id="main" role="main">
+  {% include sidebar.html %}
+
+  <div class="archive">
+    {% unless page.header.overlay_color or page.header.overlay_image %}
+      <h1 id="page-title" class="page__title">{{ page.title }}</h1>
+    {% endunless %}
+
+      <table>
+      <tr><th>First name</th><td>{{page.firstname}}</td></tr>
+      <tr><th>Initials</th><td>{{page.initials}}</td></tr>
+      <tr><th>Surname</th><td>{{page.surname}}</td></tr>
+      <tr><th>Birth Town</th><td>{{page.birthtown}}</td></tr>
+      <tr><th>Resided Town</th><td>{{page.residedtown}}</td></tr>
+      <tr><th>Nationality</th><td>{{page.nationality}}</td></tr>
+      <tr><th>Date of Death</th><td>{{page.dateofdeath}}</td></tr>
+      <tr><th>Fate</th><td>{{page.fate}}</td></tr>
+      <tr><th>Rank</th><td>{{page.rank}}</td></tr>
+      <tr><th>Service Number</th><td>{{page.servicenumber}}</td></tr>
+      <tr><th>Duty Location</th><td>{{page.dutylocation}}</td></tr>
+      <tr><th>Campaign Medals</th><td><ul>{% for medal in page.campaignmedals %} <li>{{medal}}</li> {% endfor %}</ul></td></tr>
+      <tr><th>Service</th><td>{{page.service}}</td></tr>
+      <tr><th>Regiment</th><td>{{page.regiment}}</td></tr>
+      <tr><th>Battalion</th><td>{{page.battalion}}</td></tr>
+      <tr><th>Commemorated</th><td><ul>{% for place in page.commemorated %} <li>{{place}}</li> {% endfor %}</ul></td></tr>
+      </table>
+
+    {{ content }}
+  </div>
+</div>
