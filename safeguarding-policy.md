@@ -2,7 +2,7 @@
 title: Safeguarding Policy
 ---
 
-Safeguarding Officer: Jessica O’Sullivan, 07369 227313 or 01622 583611
+Safeguarding Officer: TBA
 
 Diocese of Canterbury Safeguarding Details
 ------------------------------------------

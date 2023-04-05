@@ -54,7 +54,7 @@ If we wish to use your personal data for a new purpose, not covered by this Data
 
 ### 9\. Contact Details
 
-To exercise all relevant rights, queries or complaints please in the first instance contact the Parish Data Administrator, Jessica O’Sullivan, using the contact form on this website.
+To exercise all relevant rights, queries or complaints please in the first instance contact the Parish Data Administrator, Martyn Nash, using the contact form on this website.
 
 You can contact the Information Commissioners Office on 0303 123 1113 or via email [https://ico.org.uk/global/contact-us/email/](https://ico.org.uk/global/contact-us/email/) or at the Information Commissioner’s Office, Wycliffe House, Water Lane, Wilmslow, Cheshire. SK9 5AF.
 
