@@ -43,9 +43,10 @@ analytics:
     anonymize_ip: false # default
 
 # Build settings
+permalink: /news/:path/
 markdown: kramdown
 remote_theme: "mmistakes/minimal-mistakes@4.24.0"
-repository: mtelvers/abc
+repository: mtelvers/stmichaels
 plugins:
   - jekyll-feed
   - jekyll-include-cache
@@ -75,6 +76,7 @@ defaults:
       layout: "single"
       classes: "wide"
       toc: false
+      show_date: true
       sidebar:
         nav: main
   -
