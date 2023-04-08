@@ -18,6 +18,7 @@ subtitle: Tonbridge Road, Maidstone, ME16 8JS
 email: mark.elvers@tunbury.org
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
+future: true
 
 social:
   type: Organization
