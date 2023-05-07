@@ -2,7 +2,7 @@
 title: Safeguarding Policy
 ---
 
-Safeguarding Officer: TBA
+Safeguarding Officer: Katya Svarts
 
 Diocese of Canterbury Safeguarding Details
 ------------------------------------------
