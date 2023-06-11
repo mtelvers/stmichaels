@@ -46,5 +46,7 @@ title: Churchwardens
 | Timothy Samuelson             | 2017-2018                       |
 | Mrs. Jessica O'Sullivan       | 2017-2020                       |
 | Mark T. Elvers                | 2020-2022                       |
-| James Taylor                  | 2022-                           |
+| James Taylor                  | 2022-2023                       |
+| Paul Jones                    | 2023-                           |
+| Jonathan Ardley               | 2023-                           |
 
