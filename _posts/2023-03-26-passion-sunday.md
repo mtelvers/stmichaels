@@ -131,7 +131,7 @@ who will also kindly be celebrating Mass for us on Thursday at 10.30 am.
 If you are new to St Michael\'s, do join us for tea or coffee in the
 Vestry Hall after the service, so that we can welcome you properly.
 
-**Our Annual Parochial Church Meeting** is on Sunday 30^th^ April after
+**Our Annual Parochial Church Meeting** is on Sunday 30th April after
 Mass. In preparation for it, we have to update the church **Electoral
 Roll.** If you have joined or rejoined St Michael\'s during the past
 year, and would like to be on the Roll, please speak to Martyn and fill
@@ -139,16 +139,16 @@ in a form (at back of church). Please also see Martyn If you wish to
 update your details, or check that they are correct.
 
 **Join Bishop Norman for the Chrism Mass in Canterbury Cathedral** on
-Tuesday, 4^th^ April, at 12 noon. Could you offer a lift to someone?
+Tuesday, 4th April, at 12 noon. Could you offer a lift to someone?
 (Eleanor has 3 places in her car). Bishop Norman, always a good friend
 to St Michael\'s, retires later this year. He will celebrate Mass in
-Canterbury Cathedral for the last time on June 10^th^ and his last
-Richborough Family Festival in St Albans will be on August 5^th^. More
+Canterbury Cathedral for the last time on June 10th and his last
+Richborough Family Festival in St Albans will be on August 5th. More
 details later, but put the dates in your diary!
 
 **More Dates -- agreed at the last PCC Meeting:** Our **Coronation Big
 Lunch** will be a bring-and-share lunch after Mass on **Sunday, May
-7^th^**. And we look forward to our **Strawberry Fair** on **Saturday,
+7th**. And we look forward to our **Strawberry Fair** on **Saturday,
 July 1^st^** -- please contact Sara with fair ideas and offers of help.
 
 **Thanks to Fr Derek** for so kindly leading our Quiet Day in the

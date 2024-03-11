@@ -132,7 +132,7 @@ tea or coffee in the Vestry Hall after Mass, so that we can welcome you
 properly.
 
 **Garden Working Party** plans an extra session on **Saturday, February
-11th, 9.30 am to 12 noon.** The regular session, on **February 25^th^**,
+11th, 9.30 am to 12 noon.** The regular session, on **February 25th**,
 will be devoted to general clearing and tidying before Bishop Norman\'s
 visit. There are many jobs connected with a church that get noticed only
 when they don\'t get done -- so thanks to all cleaners, tidiers,
@@ -145,7 +145,7 @@ corner.
 
 **Ministry** isn\'t something done just by clergy. Lay ministry takes
 many forms, some "official" and some less so. A FREE **Lay Ministry
-Celebration Day** takes place on May 13^th^ at St Augustine\'s College,
+Celebration Day** takes place on May 13th at St Augustine\'s College,
 Malling Abbey, 10.30-4.30 -- a chance to learn about specialised
 ministry like Anna Chaplaincy, to take a fresh look at whatever we are
 already doing in the service of our church, and to learn from visiting

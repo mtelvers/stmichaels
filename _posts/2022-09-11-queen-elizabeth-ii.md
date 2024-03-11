@@ -1,4 +1,4 @@
-**Sunday 11^th^ September 2022**
+**Sunday 11th September 2022**
 
 **In this Mass we pray for the repose of the soul of Her Majesty Queen
 Elizabeth II and thank God for her life of dedication and service.**
@@ -82,7 +82,7 @@ time.**
 
 **Welcome** to new readers and those new to St Michael\'s; a special
 welcome and thanks to Fr Paul Matthias, our celebrant this morning, who
-is also kindly celebrating Mass for us on Thursday 15^th^ September. If
+is also kindly celebrating Mass for us on Thursday 15th September. If
 you are a newcomer or a visitor, please make yourself known to a member
 of the congregation so that we can welcome you properly.
 
@@ -94,15 +94,15 @@ of church,** indicating what you could bring, and any help you are
 willing to give on the day or beforehand. Everyone is invited, and
 anyone new to St Michael\'s will be particularly welcome. Please try to
 be there! **NB** To tidy up before our Festival, there will be **Church
-Cleaning** on Saturday 17^th^ from 10 am. The **Garden Working Party**
+Cleaning** on Saturday 17th from 10 am. The **Garden Working Party**
 has planned two extra sessions: many thanks to those who helped on
-Saturday 10^th^, and it would be wonderful if others could join in on
-Saturday 17^th^ from 1.30pm. (Additionally, the GWP would love to see
+Saturday 10th, and it would be wonderful if others could join in on
+Saturday 17th from 1.30pm. (Additionally, the GWP would love to see
 anyone who can join in the session planned for October 8th -- do speak
 to Martyn Nash if you would like to know more).
 
 **The Funeral of Fr Paul Gibbons** takes place at St Francis\' RC
-Church, Maidstone, on Tuesday 13^th^ September at 11.30 am. As you can
+Church, Maidstone, on Tuesday 13th September at 11.30 am. As you can
 see below, he has received a fitting tribute from the Tower of this
 church, where he was parish priest for 40 years:
 
@@ -153,16 +153,16 @@ Rung in thanksgiving for the life of Father Paul Gibbons (1937-2022) on
 the Feast of St Birinus, first Bishop of Dorchester and Apostle of
 Wessex.
 
-**Prayers, please, for our PCC Meeting** at 7.30 pm on Thursday 15^th^
+**Prayers, please, for our PCC Meeting** at 7.30 pm on Thursday 15th
 September.
 
 **The Forward in Faith Committee** for Canterbury Diocese meets on Sept.
-24^th^. Please speak to our reps (Mike Trout or Eleanor Relle) if you
+24th. Please speak to our reps (Mike Trout or Eleanor Relle) if you
 have ideas or suggestions.
 
 **Deepening Discipleship -** a Diocesan course for people who may be
 exploring lay ministry, or who just want to develop their Christian life
--- is available via Zoom this autumn (enrolment closes Sept. 16^th^).
+-- is available via Zoom this autumn (enrolment closes Sept. 16th).
 Details on the Diocesan website.
 
 ***Thank You to all (particularly our bellringers) who have helped St

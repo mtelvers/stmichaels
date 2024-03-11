@@ -112,7 +112,7 @@ advertisement and respond.
 **NB: However, a priest needs to be confident of the support of the
 people he comes to serve. Is God calling YOU to serve as a Churchwarden
 or PCC member at this important moment in the history of St Michael\'s?
-Elections take place at the Annual Meeting on Sunday 30^th^ April. Let
+Elections take place at the Annual Meeting on Sunday 30th April. Let
 us have a vigorous, committed St Michael\'s team to prepare to welcome
 our new priest! There are nomination forms in the narthex -- or
 nominations can be put forward at the meeting.**

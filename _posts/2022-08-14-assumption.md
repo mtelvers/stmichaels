@@ -73,12 +73,12 @@ destroyed is death, for everything is to be put under his feet.
 
 **Gospel: Luke 1: 39-56**
 
-News From St Michael\'s, 14^th^ August, 2022
+News From St Michael\'s, 14th August, 2022
 
 Today we welcome Fr Derek as our celebrant. On Sunday 21^st^ August our
 celebrant will be Fr Paul. Warmest thanks to them both for their time
 and their pastoral concern for the St Michael\'s family. **Please note:
-there will be NO MASS this Thursday, 19^th^ August.**
+there will be NO MASS this Thursday, 19th August.**
 
 Urgent: We simply must have someone who can act as "Halls Manager" and
 deal with enquiries and bookings. Last week we had to turn away an
@@ -91,7 +91,7 @@ in this way?
 
 **First, thank you** to Daphne for producing the lovely flower
 arrangement beside the Mothers\' Union banner, reminding us of Mary
-Sumner Day on August 9^th^. We give thanks for the work of the MU,
+Sumner Day on August 9th. We give thanks for the work of the MU,
 praying that God will bless and guide our own branch and its
 members**.** It isn\'t too late to make Mary Sumner\'s prayer our own:
 

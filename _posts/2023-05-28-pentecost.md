@@ -110,7 +110,7 @@ day, and we hope something similar can be arranged next year.
 result we hoped for. Discussion is taking place about what the next step
 should be. Please keep praying!
 
-**The Richborough Family Day on June 10^th^** will be one of the last
+**The Richborough Family Day on June 10th** will be one of the last
 opportunities for Resolution parishes in this diocese to mark their
 appreciation of Bishop Norman, who retires next Easter. In case you
 missed the poster in the porch: a 12 noon sung Mass at Canterbury

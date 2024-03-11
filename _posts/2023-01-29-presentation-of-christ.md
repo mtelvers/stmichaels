@@ -108,12 +108,12 @@ among the consecrating bishops. Please note: there will be **no Mass**
 at St Michael\'s that day.
 
 **Bishop Norman** emailed on Wednesday with good news: he said he\'d
-like to visit us on Sunday 26^th^ February - unless we had other plans!
+like to visit us on Sunday 26th February - unless we had other plans!
 He will celebrate and preach for us, and after Mass we shall welcome him
 to a parish lunch; a list will appear next week and the PCC will be very
 glad of offers of food and help beforehand and on the day.
 
-**Our Quiet Day** at The Friars on Saturday, 25^th^ March, 10 am-3 pm,
+**Our Quiet Day** at The Friars on Saturday, 25th March, 10 am-3 pm,
 is taking shape. Fr Derek has kindly offered to accompany us and
 celebrate Mass for us in one of the chapels. The day will include 2
 short addresses, free time for us to pray and reflect on our own, lunch

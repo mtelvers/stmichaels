@@ -21,18 +21,18 @@ the family.
 
 **Vacancy News:** Fr Richard Bolton, formerly of Holy Trinity, Winchmore
 Hill, has applied to become our parish priest and will be coming to
-Maidstone for interview on December 7^th^. The timetable for the day has
+Maidstone for interview on December 7th. The timetable for the day has
 yet to be announced from the Archdeacon\'s office, but it will certainly
 include an opportunity for parishioners to meet him, and for him to meet
-parishioners. Alas, the 7^th^ is a working day -- but please watch this
+parishioners. Alas, the 7th is a working day -- but please watch this
 space and see if you might be available when it matters. Everyone needs
 to feel that the "fit" is right! And please keep Fr Richard, the
 appointment process, and all concerned in it, in your prayers.
 
-**The Mothers\' Union Advent service,** planned for the 7^th^, will now
-take place on the 14^th^.
+**The Mothers\' Union Advent service,** planned for the 7th, will now
+take place on the 14th.
 
-**Our Coffee Morning (10^th^ December, 10.30 am - 1 pm)** needs
+**Our Coffee Morning (10th December, 10.30 am - 1 pm)** needs
 publicity and support from everyone. Spread the word, and see what you
 can contribute to make it a success!
 
@@ -43,10 +43,10 @@ welcoming, inside and out.
 **On our Advent Wreath** (Thank you, Jessica!), we can "light up" the
 themes that unfold at the Sunday Masses of Advent -- part of our joyful
 and solemn preparation for Christmas. Jessica will be glad of help with
-the trees and other decorations on the 14^th^.
+the trees and other decorations on the 14th.
 
 **St Andrew\'s, Deal,** one of our neighbour Resolution parishes,
-celebrates its patronal festival on Wednesday 30^th^ with Mass at 7.30
+celebrates its patronal festival on Wednesday 30th with Mass at 7.30
 pm. Everyone is invited.
 
 **Our Heating (yes, we now have some!):** Many thanks to Nelly and

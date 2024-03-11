@@ -167,7 +167,7 @@ far more. Memo: Bear in mind that there is, additionally, an opportunity
 to make one\'s **pre-Easter Confession** before the Mass. No need to
 book for that -- just ask a steward on the day!
 
-**Don\'t forget the parish Quiet Day** at The Friars on Saturday 25^th^
+**Don\'t forget the parish Quiet Day** at The Friars on Saturday 25th
 March, 9.30 am -- 3.30 pm. Any queries to Jonathan, please.
 
 *Could you pass on this sheet to someone else who might like to see it?*

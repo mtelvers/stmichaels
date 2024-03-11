@@ -102,11 +102,11 @@ as to a lamp shining in a dark place,\
 until day dawns and the morning star rises in your hearts.
 
 **Gospel: Matthew 17: 1-9**\
-**News From St Michael\'s - 7^th^ August, 2022.**
+**News From St Michael\'s - 7th August, 2022.**
 
 *Today we welcome as our guest celebrant Fr Derek Mottershead, who will
-also be celebrating next Sunday, !4^th^ August - when we shall be
-keeping the Feast of the Assumption of Our Lady. On Thursday, 11^th^
+also be celebrating next Sunday, !4th August - when we shall be
+keeping the Feast of the Assumption of Our Lady. On Thursday, 11th
 August, we shall be welcoming as celebrant Fr Paul Matthias. We are most
 grateful to them both for their kindness and support during our
 interregnum.*
@@ -183,7 +183,7 @@ Remembering Jason Adam Orwin, 3/8/2020. R.I.P.
 
 **It could be your Pilgrimage of a Lifetime....** Bishop Norman Banks
 and Canon Adrian Ling will be leading a pilgrimage to the Holy Land on
-16^th\ \_^25^th^ November, 2023. This is being arranged through McCabe
+16^th\ \_^25th November, 2023. This is being arranged through McCabe
 Pilgrimages, and for bookings before January 31^st^ there is an
 early-bird discount which brings the price down to £2425 per person
 (based on 2 sharing) -- including flights, coach travel, all meals,

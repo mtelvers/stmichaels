@@ -1,4 +1,4 @@
-**SUNDAY NEXT BEFORE LENT 19^th^ February 2023. Hymns 358, 271, 304,
+**SUNDAY NEXT BEFORE LENT 19th February 2023. Hymns 358, 271, 304,
 388**
 
 **FIRST READING Exodus 24.12-18** The Lord said to Moses, 'Come up to me
@@ -88,16 +88,16 @@ Hall after Mass, so that we can welcome you properly.
 **Ash Wednesday is this Wednesday, 22^nd^ February. Mass at 7.30 pm.**
 
 **Bishop Norman will be celebrating and preaching for us next Sunday**,
-the 26^th^ February. Let us all be present to welcome him and share in
+the 26th February. Let us all be present to welcome him and share in
 the parish lunch after Mass.
 
 **Garden Working Party** meets for general cleaning and tidying on
-Saturday 25^th^ from 9.30 to 12 noon. Everyone welcome -- please speak
+Saturday 25th from 9.30 to 12 noon. Everyone welcome -- please speak
 to Martyn. Thank you to our gardeners, and to all who have been working
 quietly, month after month, to keep our church and its surroundings
 looking their best.
 
-**Our Lent Quiet Day,** accompanied by Fr Derek, is booked for 25^th^
+**Our Lent Quiet Day,** accompanied by Fr Derek, is booked for 25th
 March at The Friars. We shall have the use of the St Albert Room, and
 the beautiful Cloister Chapel will be the setting for our Mass. If the
 weather is kind, there is the chance to take some quiet time in the

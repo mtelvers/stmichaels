@@ -111,7 +111,7 @@ the Agenda, please mention it as soon as possible to Paul or Eleanor.
 welcoming or refreshments** in the coming weeks. Also, while it has
 become customary here to leave the Crib in place until Candlemas, we
 shall be **dismantling the rest of the Christmas decorations** after
-Epiphany, on Saturday 7^th^ January at 9 am. Any help will be most
+Epiphany, on Saturday 7th January at 9 am. Any help will be most
 welcome.
 
 **A FREE Online Safeguarding Conference,** organised annually by the

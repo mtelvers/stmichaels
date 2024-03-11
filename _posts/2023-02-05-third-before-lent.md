@@ -1,4 +1,4 @@
-**THIRD SUNDAY BEFORE LENT - 5^th^ February 2023**
+**THIRD SUNDAY BEFORE LENT - 5th February 2023**
 
 **Hymns NEH 377, 433, 282, 235**
 
@@ -117,11 +117,11 @@ for further information. There will be a **regular GWP** on Saturday,
 **25th February,** at 9.30 am, for general clearing and tidying,
 particularly in view of\...
 
-**\...Bishop Norman\'s Visit on 26^th^ February --** a chance for us all
+**\...Bishop Norman\'s Visit on 26th February --** a chance for us all
 to seek inspiration and encouragement on the first Sunday of Lent.
 **Please sign up on the list at the back of church** if you can offer
 food and/or help with the buffet lunch planned for après-Mass that day
--- and, most important, come to church on the 26^th^! The Bishop\'s
+-- and, most important, come to church on the 26th! The Bishop\'s
 encouragement will be especially welcome in view of our\...
 
 **\...Vacancy News:** A letter from the Bishop of Dover, received last
@@ -129,7 +129,7 @@ Monday, informs us that "I will not be taking the application further at
 this time" and that the Archdeacon of Maidstone "will be speaking to you
 about the next steps for making a new appointment."
 
-**Our Quiet Day at The Friars** on Saturday March 25^th^ promises to be
+**Our Quiet Day at The Friars** on Saturday March 25th promises to be
 a refreshing and rewarding one. If you have not yet registered an
 interest, do speak to Eleanor, Paul or Jonathan if you would like to
 come. If you might be able to offer someone a lift, better still!

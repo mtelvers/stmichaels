@@ -72,7 +72,7 @@ this morning, who will also kindly be saying Mass for us on Thursday at
 10.30 am. If you are new to St Michael\'s, do join us in the Vestry Hall
 after the service, so that we can welcome you properly.
 
-**Thursday, June 8^th^, is the Feast of Corpus Christi,** when we thank
+**Thursday, June 8th, is the Feast of Corpus Christi,** when we thank
 God especially for His gift to us of the Holy Eucharist. Of course we
 also commemorate this, with thanksgiving, on Maundy Thursday, but on
 that day the Passion of the Lord is already at the forefront of our
@@ -81,7 +81,7 @@ mystery bathed in the light of His glorious Resurrection and Ascension.
 Thursday\'s 10.30 Mass will be a special Corpus Christi one; please come
 if you possibly can.
 
-**Saturday, June 10^th^, is the Richborough Family Day** for this
+**Saturday, June 10th, is the Richborough Family Day** for this
 diocese -- a chance for Resolution parishes, including our own, to
 gather at Canterbury Cathedral to express our gratitude for the ministry
 of Bishop Norman, who will be retiring at Easter 2024. Bishop Norman\'s
@@ -120,20 +120,20 @@ speak to Eleanor. Please, where possible, can both readers try to arrive
 beside the lectern at the same time, and return to their seats at the
 same time?*
 
-**Sunday June 4^th^:** OT Mike Trout, NT William Danes-Volkov   
-**Sunday June 11^th^:** OT Catherine Garland, NT Katja Svarts   
-**Sunday June 18^th^:** OT Margaret Gatehouse, NT Alison Heywood   
-**Sunday June 25^th^:** OT Paul Jones, NT Eleanor Relle   
+**Sunday June 4th:** OT Mike Trout, NT William Danes-Volkov   
+**Sunday June 11th:** OT Catherine Garland, NT Katja Svarts   
+**Sunday June 18th:** OT Margaret Gatehouse, NT Alison Heywood   
+**Sunday June 25th:** OT Paul Jones, NT Eleanor Relle   
 
 **Thank you to Paul, Martyn and Margaret** for the effective tidying
 session that took place in church on Friday.
 
 **Future welcomes:**
 
-**On July 11^th^** we look forward to welcoming Jubilee School for their
+**On July 11th** we look forward to welcoming Jubilee School for their
 Leavers\' Service.
 
-**On August 13^th^** we look forward to a visit from Archdeacon Andrew
+**On August 13th** we look forward to a visit from Archdeacon Andrew
 Sewell, who has kindly accepted an invitation to preach for us.
 
 **Welcome back** to Malcolm, who visited his historic trolleybus in
