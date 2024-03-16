@@ -124,7 +124,7 @@ concern them. Recently St Michael\'s has made its presence felt, and its
 voice heard, on these occasions. Please note the date and try to come
 along.
 
-**Our pre-Christmas Fair, on 2^nd^ December from 12 noon to 4 pm,** will
+**Our pre-Christmas Fair, on 2nd December from 12 noon to 4 pm,** will
 need the work of cake-bakers, jam-makers, plant-growers, craftspeople,
 prize-donors - and others, including kindly angels who will give help on
 the day. It will also be a better Fair if people contribute bright ideas

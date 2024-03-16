@@ -75,7 +75,7 @@ destroyed is death, for everything is to be put under his feet.
 
 News From St Michael\'s, 14th August, 2022
 
-Today we welcome Fr Derek as our celebrant. On Sunday 21^st^ August our
+Today we welcome Fr Derek as our celebrant. On Sunday 21st August our
 celebrant will be Fr Paul. Warmest thanks to them both for their time
 and their pastoral concern for the St Michael\'s family. **Please note:
 there will be NO MASS this Thursday, 19th August.**

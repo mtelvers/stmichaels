@@ -86,7 +86,7 @@ Sacraments.
 roadworks! - Fr John was moving into the vicarage. We hope that he and
 his rescue dog Rosa will find it a very happy home, and we look forward
 to welcoming Fr John as our new parish priest, at his Licensing on
-Thursday, 21^st^ March, at 7 pm.
+Thursday, 21st March, at 7 pm.
 
 **Everyone connected with St Michael\'s is of course invited,** and
 acceptances have been coming in from well-wishers in the community,

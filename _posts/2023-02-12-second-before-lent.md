@@ -159,7 +159,7 @@ February, 11 am -- 2 pm, at Maidstone Community Support Centre, 39-48
 Marsham Street, for anyone who might be interested in exploring
 fostering. Or telephone 0800 802 1910 for a brochure.
 
-**Don\'t forget -- Wednesday 22^nd^ February is Ash Wednesday. Mass will
+**Don\'t forget -- Wednesday 22nd February is Ash Wednesday. Mass will
 be at 7.30 pm.**
 
 **Bishop Norman\'s Visit, February 26th:** Sue Matthias or Alison Ponter

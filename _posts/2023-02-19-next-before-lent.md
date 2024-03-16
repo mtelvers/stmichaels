@@ -85,7 +85,7 @@ for us on Ash Wednesday (see below) and on Thursday at 10.30 am. If you
 are new to St Michael\'s, do join us for tea or coffee in the Vestry
 Hall after Mass, so that we can welcome you properly.
 
-**Ash Wednesday is this Wednesday, 22^nd^ February. Mass at 7.30 pm.**
+**Ash Wednesday is this Wednesday, 22nd February. Mass at 7.30 pm.**
 
 **Bishop Norman will be celebrating and preaching for us next Sunday**,
 the 26th February. Let us all be present to welcome him and share in

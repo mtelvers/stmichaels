@@ -149,7 +149,7 @@ details later, but put the dates in your diary!
 **More Dates -- agreed at the last PCC Meeting:** Our **Coronation Big
 Lunch** will be a bring-and-share lunch after Mass on **Sunday, May
 7th**. And we look forward to our **Strawberry Fair** on **Saturday,
-July 1^st^** -- please contact Sara with fair ideas and offers of help.
+July 1st** -- please contact Sara with fair ideas and offers of help.
 
 **Thanks to Fr Derek** for so kindly leading our Quiet Day in the
 beautiful surroundings of The Friars.

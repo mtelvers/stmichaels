@@ -100,7 +100,7 @@ so that we can welcome you properly.
 Next Sunday we move into the season of Advent -- a time to reflect on
 the first coming of Christ and to prepare for His second coming.
 
-**Our pre-Christmas Fair is on this coming Saturday, 2^nd^ December, 12
+**Our pre-Christmas Fair is on this coming Saturday, 2nd December, 12
 noon to 4 pm!** It isn\'t too late to look out for things that would
 make good Tombola prizes, to think about home-made items such as cakes
 and jams (please attach a list of ingredients), or to provide something
@@ -176,7 +176,7 @@ Friday, 17 November 2023 in 37m (6--1--24 in C)
 Rung on the Saint\'s Day of Hugh, Bishop of Lincoln, 1200.
 
 **St Andrew\'s, Barming, invites everyone to Raise the Roof -** seasonal
-songs and refreshments on December 1^st^ at 7.30 pm -- retiring
+songs and refreshments on December 1st at 7.30 pm -- retiring
 collection for the repair of the church roof!
 
 **December Readers\' List** (Thank you, everyone, and please feel free

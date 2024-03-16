@@ -115,7 +115,7 @@ Epiphany, on Saturday 7th January at 9 am. Any help will be most
 welcome.
 
 **A FREE Online Safeguarding Conference,** organised annually by the
-dioceses of Canterbury and Rochester, takes place on 21^st^ January from
+dioceses of Canterbury and Rochester, takes place on 21st January from
 9 am to 12.30 pm. Everyone is invited, and you can book a ticket at
 <https://www.eventbrite.co.uk/e/annual-conference-2023-partnerships-in-creating-safer-church-tickets-474612728447>.
 

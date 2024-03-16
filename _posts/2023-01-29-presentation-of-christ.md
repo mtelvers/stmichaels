@@ -102,7 +102,7 @@ welcome to Fr Paul, who is celebrating for us. If you are new to St
 Michael\'s, please join us for tea or coffee in the Vestry Hall after
 Mass, so that we can welcome you properly.
 
-**Candlemas** itself (February 2^nd^) will see the consecration of the
+**Candlemas** itself (February 2nd) will see the consecration of the
 new Bishop of Oswestry in Canterbury Cathedral. Bishop Norman will be
 among the consecrating bishops. Please note: there will be **no Mass**
 at St Michael\'s that day.

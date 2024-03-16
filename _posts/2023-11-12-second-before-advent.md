@@ -131,7 +131,7 @@ the Cathedral....
 Also at the Cathedral - A chance to visit its **stained glass studio
 workshop**, which is celebrating 50 years of protecting, conserving and
 maintaining the Cathedral\'s magnificent windows, some of which date
-back to the 12th century. A special studio visit is offered on 1^st^
+back to the 12th century. A special studio visit is offered on 1st
 December at 11 am, cost £25. Book online via canterbury-cathedral.org.
 
 **King\'s Reach Education,** a Christian educational charity seeking to

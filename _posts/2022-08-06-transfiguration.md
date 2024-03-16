@@ -184,7 +184,7 @@ Remembering Jason Adam Orwin, 3/8/2020. R.I.P.
 **It could be your Pilgrimage of a Lifetime....** Bishop Norman Banks
 and Canon Adrian Ling will be leading a pilgrimage to the Holy Land on
 16^th\ \_^25th November, 2023. This is being arranged through McCabe
-Pilgrimages, and for bookings before January 31^st^ there is an
+Pilgrimages, and for bookings before January 31st there is an
 early-bird discount which brings the price down to £2425 per person
 (based on 2 sharing) -- including flights, coach travel, all meals,
 accommodation at two excellent family-run hotels (one in Jerusalem, one

@@ -154,7 +154,7 @@ Rung on Bell Sunday and on the Feast of Matthias the Apostle.
 
 Rung on the Feast of Helena, Protector of the Holy Places, 330.
 
-**Plans are coming together for our Strawberry Fair on July 1^st^, 2 pm
+**Plans are coming together for our Strawberry Fair on July 1st, 2 pm
 -- 4.30 pm!** Offers of help with serving and washing-up the teas will
 be welcomed by Sara, also help with setting-up in the morning. Are you a
 home baker? Can you find any tombola items, or create items for the

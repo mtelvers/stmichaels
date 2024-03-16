@@ -99,7 +99,7 @@ please allow plenty of time to use the Park & Ride or to find a space in
 one of the city car parks*.
 
 **"As I was going to Strawberry Fair....."** That\'s what we\'ll all be
-doing at St Michael\'s on **July 1^st^, 2 pm-4.30 pm.** Please encourage
+doing at St Michael\'s on **July 1st, 2 pm-4.30 pm.** Please encourage
 any friends, neighbours and relations to come too, for a luscious
 strawberry tea plus some fun (raffle, tombola, craft stall.....) If you
 are not yet booked to help with something -- baking, setting-up,

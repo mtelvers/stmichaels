@@ -100,7 +100,7 @@ Michael\'s, do join us in the Vestry Hall after the service, so that we
 can welcome you properly.
 
 **We all look forward to welcoming Fr John Ainslie** as our new Vicar.
-**On 21^st^ March at 7 pm**, Fr John will be licensed to our parish by
+**On 21st March at 7 pm**, Fr John will be licensed to our parish by
 Bishop Rose and installed by Archdeacon Andrew. Bishop Norman will be
 the preacher. Don\'t miss this very important and joyful occasion in the
 life of St Michael\'s! Can you think of anything you can do to help,
@@ -178,7 +178,7 @@ Teacher of the Faith, 1274.
 and on Sunday, February 25th, we are having a Frugal Lunch, for which
 Alison P. will be happy to receive offers of help.
 
-**A chance of a Lent Quiet Afternoon at Capel on Saturday 2^nd^ March
+**A chance of a Lent Quiet Afternoon at Capel on Saturday 2nd March
 with a party from Yalding -- tbc at present, but further information
 from Fr Paul Kish when he joins us on February 11th.**
 

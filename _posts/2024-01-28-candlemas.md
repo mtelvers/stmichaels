@@ -9,7 +9,7 @@ can welcome you properly. Today -- Candlemas -- is the day when we
 particularly remember the Presentation of the Holy Child in the Temple.
 
 **We all look forward to welcoming Fr John Ainslie** as our new Vicar.
-**On 21^st^ March at 7 pm**, Fr John will be licensed to our parish by
+**On 21st March at 7 pm**, Fr John will be licensed to our parish by
 Bishop Rose and installed by Archdeacon Andrew. Bishop Norman will be
 the preacher. Don\'t miss this very important and joyful occasion in the
 life of St Michael\'s! Can you think of anything you can do to help,
@@ -18,7 +18,7 @@ Sue, who will welcome ideas and offers of assistance - and please see
 the next page for a message to us all from Fr John!
 
 **Valerie Stickland\'s Funeral** takes place at Vinters Park on
-Wednesday 31^st^ January at 1.15 pm; light refreshments afterwards at
+Wednesday 31st January at 1.15 pm; light refreshments afterwards at
 The Clubhouse, Matterdale Gardens, Barming, ME16 9JN. No flowers, but
 donations, if desired (through Family Funeral Services, Beverley Road,
 Barming, ME16 9JN), to Westie Rescue Scheme or Friends of Canterbury

@@ -87,7 +87,7 @@ you are a newcomer or a visitor, please make yourself known to a member
 of the congregation so that we can welcome you properly.
 
 **Our Harvest and Patronal Festival** is approaching. **Mass at 10.30 on
-October 2^nd^** will be followed by a **Buffet Lunch in the Vestry Hall.
+October 2nd** will be followed by a **Buffet Lunch in the Vestry Hall.
 Our guest preacher at Mass that day will be the Archdeacon of Maidstone,
 who will be joining us for lunch. Please sign up on the list at the back
 of church,** indicating what you could bring, and any help you are
