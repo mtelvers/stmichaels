@@ -17,4 +17,5 @@ title: Vicars
 | Paul James Gibbons         | 1972-2012 |
 | Peter Anthony Rowe         | 2013-2016 |
 | Neil Dominic Bryson        | 2017-2022 |
+| John Francis Ainslie       | 2024-     |
 
