@@ -2,7 +2,7 @@
 title: Safeguarding Policy
 ---
 
-Safeguarding Officer: Katya Svarts
+Safeguarding Officer: William Danes-Volkov, 07538 718 735
 
 Diocese of Canterbury Safeguarding Details
 ------------------------------------------
