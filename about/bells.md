@@ -17,9 +17,9 @@ The bells are rung on Sunday morning before the service from 10:00 to 10:30 and 
 
 Practice night is every other Friday 19:30 - 21:00, but please check for before attending.  Alternate Fridays are quarter peals starting at 19:30.
 
-Tower Contact: Jacqueline Barlow
-Contact Email: jackiebarlow28@btinternet.com
-Contact Phone No: 01622 762185
+Tower Contact: Jacqueline Barlow  
+Contact Email: jackiebarlow28@btinternet.com  
+Contact Phone No: 01622 762185  
 
 Original Bells
 --------------
@@ -60,14 +60,14 @@ The Peal now comprises:
 
 | #      | Inscription                                                                                                                | Weight | Note | Date | Diameter   |
 |--------|----------------------------------------------------------------------------------------------------------------------------|--------|------|------|------------|
-| Treble | A. M. D. G.  (Ad Majorem Dei Gloriam)                                                                                       | 2-1-12 | C    | 1979 | 19¾"      |
+| Treble | A. M. D. G.  (Ad Majorem Dei Gloriam)                                                                                      | 2-1-12 | C    | 1979 | 19¾"       |
 | No. 2  | RECAST FROM A BELL DONATED BY SARAH BUCKMASTER                                                                             | 2-1-20 | B    | 1979 | 20¾"       |
 | No. 3  | RECAST FROM A BELL DONATED BY HENRY HUGHES                                                                                 | 2-2-16 | A    | 1979 | 22"        |
 | No. 4  | RECAST FROM A BELL DONATED BY DAVID STEPHEN WHITE                                                                          | 2-2-26 | G    | 1979 | 24"        |
 | No. 5  | RECAST FROM A BELL DONATED BY CHARLES BEAUMONT                                                                             | 3-1-4  | F    | 1979 | 26"        |
-| No. 6  | RECAST FROM A BELL DONATED BY FRANCES, LEWIS, JOHN, PERCY, CLARA, AND MABEL &#8211; CHILDREN OF MAIDSTONE AND L. D. WIGAN. | 3-3-8  | E    | 1979 | 27"        |
-| No. 7  | THIS BELL ORIGINALLY CAST IN 1876: AND BELLS 2-6 IN 1878 BY JOHN WARNER &amp; SONS, LONDON                                 | 5-0-4  | D    | 1979 | 29"        |
-| Tenor  | GILLETT &amp; JOHNSTON, CROYDON 1933 IN LOVING MEMORY OF MILLICENT 1900 &#8211; 1931 &#8220;PRAISE YE THE LORD&#8221;      | 6-1-24 | C    | 1933 | 32"        |
+| No. 6  | RECAST FROM A BELL DONATED BY FRANCES, LEWIS, JOHN, PERCY, CLARA, AND MABEL - CHILDREN OF MAIDSTONE AND L. D. WIGAN.       | 3-3-8  | E    | 1979 | 27"        |
+| No. 7  | THIS BELL ORIGINALLY CAST IN 1876: AND BELLS 2-6 IN 1878 BY JOHN WARNER & SONS, LONDON                                     | 5-0-4  | D    | 1979 | 29"        |
+| Tenor  | GILLETT & JOHNSTON, CROYDON 1933 IN LOVING MEMORY OF MILLICENT 1900 - 1931 PRAISE YE THE LORD                              | 6-1-24 | C    | 1933 | 32"        |
 
 The combined weight of the peal is 1 ton 6 cwt 3 stn 2 lb. That the peal was increased at all owes much to the enthusiasm of Mr & Mrs. Michael Barber.
 
