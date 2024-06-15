@@ -2,7 +2,10 @@
 title: Safeguarding Policy
 ---
 
-Safeguarding Officer: William Danes-Volkov, 07538 718 735
+Interim Parish Safeguarding Officer:
+Clare Torrens  
+07580 018 072  
+<a href="mailto:claretorrens@stlukesmaidstone.church">claretorrens@stlukesmaidstone.church</a>
 
 Diocese of Canterbury Safeguarding Details
 ------------------------------------------
