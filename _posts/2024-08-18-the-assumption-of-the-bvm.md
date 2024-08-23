@@ -4,7 +4,7 @@ Hymns NEH 185, 271, 184, 186
 
 # FIRST READING ( Revelation 11: 19; 12:1-6, 10)
 
-## A reading from the book of Revelation.
+## A reading from the book of Revelation.
 
 The sanctuary of God in heaven opened, and the ark of the covenant could
 be seen inside it. Now a great sign appeared in heaven; a woman, adorned
@@ -42,46 +42,46 @@ they pass within the palaces of the King. ***R.***
 ## A reading from the First letter of St Paul to the Corinthians.
 
 Christ has been raised from the dead, the first fruits of those who have
-died. For since death came through a human being, the resurrection of
-the dead has also come through a human being; for as all die in Adam, so
-all will be made alive in Christ. But each in his own order: Christ the
-first fruits, then at his coming those who belong to Christ. Then comes
-the end, when he hands over the kingdom to God the Father, after he has
-destroyed every ruler and every authority and power. For he must reign
-until he has put all his enemies under his feet. The last enemy to be
+died. For since death came through a human being, the resurrection of
+the dead has also come through a human being; for as all die in Adam, so
+all will be made alive in Christ. But each in his own order: Christ the
+first fruits, then at his coming those who belong to Christ. Then comes
+the end, when he hands over the kingdom to God the Father, after he has
+destroyed every ruler and every authority and power. For he must reign
+until he has put all his enemies under his feet. The last enemy to be
 destroyed is death.
 
 # HOLY GOSPEL (Luke 1: 39-56)
 
 In those days Mary set out and went with haste to a Judean town in the
-hill country, where she entered the house of Zechariah and greeted
-Elizabeth. When Elizabeth heard Mary's greeting, the child leapt in her
-womb. And Elizabeth was filled with the Holy Spirit and exclaimed with a
+hill country, where she entered the house of Zechariah and greeted
+Elizabeth. When Elizabeth heard Mary's greeting, the child leapt in her
+womb. And Elizabeth was filled with the Holy Spirit and exclaimed with a
 loud cry, 'Blessed are you among women, and blessed is the fruit of your
-womb. And why has this happened to me, that the mother of my Lord comes
-to me? For as soon as I heard the sound of your greeting, the child in
-my womb leapt for joy. And blessed is she who believed that there would
-be a fulfilment of what was spoken to her by the Lord.'
+womb. And why has this happened to me, that the mother of my Lord comes
+to me? For as soon as I heard the sound of your greeting, the child in
+my womb leapt for joy. And blessed is she who believed that there would
+be a fulfilment of what was spoken to her by the Lord.'
 
-And Mary said,\
+And Mary said,\
 'My soul magnifies the Lord,\
-   and my spirit rejoices in God my Saviour,\
+   and my spirit rejoices in God my Saviour,\
 for he has looked with favour on the lowliness of his servant.\
-   Surely, from now on all generations will call me blessed;\
+   Surely, from now on all generations will call me blessed;\
 for the Mighty One has done great things for me,\
-   and holy is his name.\
+   and holy is his name.\
 His mercy is for those who fear him\
-   from generation to generation.\
-He has shown strength with his arm;\
-   he has scattered the proud in the thoughts of their hearts.\
+   from generation to generation.\
+He has shown strength with his arm;\
+   he has scattered the proud in the thoughts of their hearts.\
 He has brought down the powerful from their thrones,\
-   and lifted up the lowly;\
-he has filled the hungry with good things,\
-   and sent the rich away empty.\
+   and lifted up the lowly;\
+he has filled the hungry with good things,\
+   and sent the rich away empty.\
 He has helped his servant Israel,\
-   in remembrance of his mercy,\
+   in remembrance of his mercy,\
 according to the promise he made to our ancestors,\
-   to Abraham and to his descendants for ever.'
+   to Abraham and to his descendants for ever.'
 
 And Mary remained with her for about three months and then returned to
 her home.
@@ -168,10 +168,10 @@ Green.
 **From the Belltower:**
 
 Sunday, 11 August 2024 **1296 Bourne Surprise Minor**\
-Composed by Daniel W Brady
+Composed by Daniel W Brady
 
 1 Chris M Trafford 2 Jacqueline M Barlow 3 Emma Jarvis 4 Jane L
-Kostelnyk 5 Mark Elvers 6 Philip Jarvis (C)
+Kostelnyk 5 Mark Elvers 6 Philip Jarvis (C)
 
 Rung on the Saints Day of Clare of Assisi, Founder of the Minonesses
 (Poor Clare's) 1253

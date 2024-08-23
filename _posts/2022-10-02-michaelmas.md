@@ -117,7 +117,7 @@ St Michael and All Angels
 
 Sunday, 25 September 2022 in 40m (6--1--24 in C)
 
-**1280 Spliced Surprise Major** (6m)
+**1280 Spliced Surprise Major** (6m)
 
 384 Rutland, 224 Superlative, 192 each of Cambridge, Lincolnshire,
 Yorkshire, 96 Pudsey; 33 com
@@ -136,7 +136,7 @@ Yorkshire, 96 Pudsey; 33 com
 
 7Kath White
 
-8Neil Jones (C)
+8Neil Jones (C)
 
 Rung on the Feast of St Sergius of Radonezh, Russian Monastic Reformer,
 Teacher of the Faith, 1392.

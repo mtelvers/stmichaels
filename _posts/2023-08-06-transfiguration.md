@@ -129,7 +129,7 @@ All Angels**
 
 Sunday, 16 July 2023 in 44m (6--1--24 in C)
 
-**1260** **Grandsire Triples**
+**1260** **Grandsire Triples**
 
 1. Philip Jarvis
 2. Shona Clark
@@ -137,7 +137,7 @@ Sunday, 16 July 2023 in 44m (6--1--24 in C)
 4. Susan Clements
 5. Emma Jarvis
 6. Graham Heath
-7. Neil Jones (C)
+7. Neil Jones (C)
 8. Mark Elvers
 
 Remembering Irene Horton (12/7/22) and Jeanette Ardley (17/7/2016),
@@ -162,7 +162,7 @@ participants will not be faced with cold and tiring journeys in the
 evenings. This course encourages participants to reflect on, and
 develop, their Christian life, and it also provides a starting-point for
 anyone who is exploring the possibility of undertaking lay ministry.
-Applications close on September 13th. Visit [Deepening Discipleship -
+Applications close on September 13th. Visit [Deepening Discipleship -
 Diocese of Canterbury
 (canterburydiocese.org)](https://www.canterburydiocese.org/our-life/spirituality-discipleship/explore-discipleship/deepening-discipleship/deepening-discipleship#_blank)
 for further information and an application form. (A chance for personal

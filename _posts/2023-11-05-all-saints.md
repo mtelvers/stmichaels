@@ -25,34 +25,34 @@ their eyes.'
 **RESPONSORIAL PSALM 34 *Response: Taste and see that the Lord is
 good***
 
-**I will bless the [Lord]{.smallcaps} at all times; his praise shall
+**I will bless the [Lord]{.smallcaps} at all times; his praise shall
 ever be in my mouth.**
 
-> I will glory in the [Lord]{.smallcaps}; let the humble hear and
+> I will glory in the [Lord]{.smallcaps}; let the humble hear and
 > rejoice.
 >
-> Proclaim with me the greatness of the [Lord]{.smallcaps}; let us exalt
+> Proclaim with me the greatness of the [Lord]{.smallcaps}; let us exalt
 > his Name together.
 >
-> I sought the [Lord]{.smallcaps}, and he answered me and delivered me
+> I sought the [Lord]{.smallcaps}, and he answered me and delivered me
 > out of all my terror. ***R***
 >
 > Look upon him and be radiant, and let not your faces be ashamed.
 >
-> I called in my affliction and the [Lord]{.smallcaps} heard me and
+> I called in my affliction and the [Lord]{.smallcaps} heard me and
 > saved me from all my troubles.
 >
-> The angel of the [Lord]{.smallcaps} encompasses those who fear him,
+> The angel of the [Lord]{.smallcaps} encompasses those who fear him,
 > and he will deliver them.
 >
-> Taste and see that the [Lord]{.smallcaps} is good; happy are they who
+> Taste and see that the [Lord]{.smallcaps} is good; happy are they who
 > trust in him! ***R***
 >
-> Fear the [Lord]{.smallcaps}, you that are his saints, for those who
+> Fear the [Lord]{.smallcaps}, you that are his saints, for those who
 > fear him lack nothing.
 >
 > The young lions lack and suffer hunger, but those who seek
-> the [Lord]{.smallcaps} lack nothing that is good. ***R***
+> the [Lord]{.smallcaps} lack nothing that is good. ***R***
 
 **SECOND READING 1 John 3.1-3** See what love the Father has given us,
 that we should be called children of God; and that is what we are. The
@@ -165,7 +165,7 @@ can be reached, with any offers or questions, on 07837 919761.
 
 Sunday, 29 October 2023 in 40m (6--1--24 in C)
 
-**1280** **Double Norwich Court Bob Major**
+**1280** **Double Norwich Court Bob Major**
 
 1. Mark Elvers
 2. Stuart Cox
@@ -174,7 +174,7 @@ Sunday, 29 October 2023 in 40m (6--1--24 in C)
 5. Paul Barton
 6. Rupert Cheeseman
 7. Stephen Coaker
-8. Neil Jones (C)
+8. Neil Jones (C)
 
 Rung on Tom\'s, Tony\'s and Rhian\'s birthday. Tom would have been 80
 today.

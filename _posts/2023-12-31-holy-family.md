@@ -47,44 +47,44 @@ from one man, and one who was already as good as dead himself, more
 descendants than could be counted, as many as the stars of heaven or the
 grains of sand on the seashore. It was by faith that Abraham, when put
 to the test, offered up Isaac. He offered to sacrifice his only son even
-though the promises had been made to him and he had been told: It is
-through Isaac that your name will be carried on. He was confident that
+though the promises had been made to him and he had been told: It is
+through Isaac that your name will be carried on. He was confident that
 God had the power even to raise the dead; and so, figuratively speaking,
 he was given back Isaac from the dead.***
 
 **GOSPEL Luke 2.22-40** When the time came for their purification
 according to the law of Moses, they brought him up to Jerusalem to
-present him to the Lord (as it is written in the law of the Lord, 'Every
-firstborn male shall be designated as holy to the Lord'), and they
+present him to the Lord (as it is written in the law of the Lord, 'Every
+firstborn male shall be designated as holy to the Lord'), and they
 offered a sacrifice according to what is stated in the law of the Lord,
 'a pair of turtle-doves or two young pigeons.'
 
-Now there was a man in Jerusalem whose name was Simeon; this man was
+Now there was a man in Jerusalem whose name was Simeon; this man was
 righteous and devout, looking forward to the consolation of Israel, and
-the Holy Spirit rested on him. It had been revealed to him by the Holy
+the Holy Spirit rested on him. It had been revealed to him by the Holy
 Spirit that he would not see death before he had seen the Lord's
-Messiah. Guided by the Spirit, Simeon came into the temple; and when the
+Messiah. Guided by the Spirit, Simeon came into the temple; and when the
 parents brought in the child Jesus, to do for him what was customary
-under the law, Simeon took him in his arms and praised God, saying,\
-'Master, now you are dismissing your servant in peace, according to your
+under the law, Simeon took him in his arms and praised God, saying,\
+'Master, now you are dismissing your servant in peace, according to your
 word;\
 for my eyes have seen your salvation, which you have prepared in the
 presence of all peoples,\
 a light for revelation to the Gentiles, and for glory to your people
 Israel.' And the child's father and mother were amazed at what was being
-said about him. Then Simeon blessed them and said to his mother Mary,
+said about him. Then Simeon blessed them and said to his mother Mary,
 'This child is destined for the falling and the rising of many in
-Israel, and to be a sign that will be opposed so that the inner thoughts
+Israel, and to be a sign that will be opposed so that the inner thoughts
 of many will be revealed---and a sword will pierce your own soul too.'
 
-There was also a prophet, Anna the daughter of Phanuel, of the tribe of
+There was also a prophet, Anna the daughter of Phanuel, of the tribe of
 Asher. She was of a great age, having lived with her husband for seven
-years after her marriage, then as a widow to the age of eighty-four. She
+years after her marriage, then as a widow to the age of eighty-four. She
 never left the temple but worshipped there with fasting and prayer night
-and day. At that moment she came, and began to praise God and to speak
-about the child to all who were looking for the redemption of Jerusalem.
+and day. At that moment she came, and began to praise God and to speak
+about the child to all who were looking for the redemption of Jerusalem.
 When they had finished everything required by the law of the Lord, they
-returned to Galilee, to their own town of Nazareth. The child grew and
+returned to Galilee, to their own town of Nazareth. The child grew and
 became strong, filled with wisdom; and the favour of God was upon him.
 
 ***NEWS FROM ST MICHAEL\'S***
@@ -156,27 +156,27 @@ Angels**
 
 Friday, 22 December 2023 in 43m (6--1--24 in C)
 
-**1272** **Norwich Surprise Minor**
+**1272** **Norwich Surprise Minor**
 
 1. Jacqueline Barlow
 2. Charlotte Elvers
 3. Lucy Harvey
 4. Mark Elvers
 5. Philip Jarvis
-6. Neil Jones (C)
+6. Neil Jones (C)
 
 1st in m: 2 & 3. Rung in anticipation of Christmas.
 
 Thursday, 28 December 2023 in 2h 43 (6--1--24 in C)
 
-**5040** **Stedman Triples -** W A Cave\'s six singles variation
+**5040** **Stedman Triples -** W A Cave\'s six singles variation
 
 1. Jason R Turnock
 2. Adam A Brady
 3. Jacqueline M Barlow
 4. Michael A Birkbeck
 5. Andrew M Hills
-6. Paul N Mounsey (C)
+6. Paul N Mounsey (C)
 7. David J Dearnley
 8. Neil W Jones
 

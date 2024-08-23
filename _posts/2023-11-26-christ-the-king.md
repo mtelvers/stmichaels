@@ -149,14 +149,14 @@ Angels**
 
 Sunday, 12 November 2023 in 41m (6--1--24 in C)
 
-**1272** **Norwich Surprise Minor**
+**1272** **Norwich Surprise Minor**
 
 1. Emma Jarvis
 2. Jacqueline Barlow
 3. Janice Byrne
 4. Mark Elvers
 5. Philip Jarvis
-6. Neil Jones (C)
+6. Neil Jones (C)
 
 Rung half-muffled on Remembrance Sunday. ***\'We will remember them.\'***
 
@@ -164,14 +164,14 @@ Rung half-muffled on Remembrance Sunday. ***\'We will remember them.\'***
 
 Friday, 17 November 2023 in 37m (6--1--24 in C)
 
-**1296** **Jarrom Surprise Minor**
+**1296** **Jarrom Surprise Minor**
 
 1. Mark Elvers
 2. Janice Byrne
 3. Jacqueline Barlow
 4. Philip Jarvis
 5. Pam Thomas
-6. Stephen Coaker (C)
+6. Stephen Coaker (C)
 
 Rung on the Saint\'s Day of Hugh, Bishop of Lincoln, 1200.
 

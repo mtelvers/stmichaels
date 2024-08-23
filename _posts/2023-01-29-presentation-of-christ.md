@@ -18,20 +18,20 @@ the hired workers in their wages, the widow, and the orphan, against
 those who thrust aside the alien, and do not fear me, says the LORD of
 hosts.
 
-**Responsorial Psalm 24. 7--10 R The Lord of hosts, he is the king of
+**Responsorial Psalm 24. 7--10 R The Lord of hosts, he is the king of
 glory.**
 
 Lift up your heads, O gates; lift them high, O everlasting doors; and
 the King of glory shall come in.
 
 'Who is this King of glory?' 'The Lord, strong and mighty,the Lord,
-mighty in battle.'** R**
+mighty in battle.'** R**
 
 Lift up your heads, O gates; lift them high, O everlasting doors; and
 the King of glory shall come in.
 
 'Who is he, this King of glory?' 'The Lord of hosts, he is the King of
-glory.' **R**
+glory.' **R**
 
 **SECOND READING Hebrews 2.14--18** Since the children share flesh and
 blood, Jesus himself likewise shared the same things, so that through
@@ -44,7 +44,7 @@ faithful high priest in the service of God, to make a sacrifice of
 atonement for the sins of the people. Because he himself was tested by
 what he suffered, he is able to help those who are being tested.
 
- 
+ 
 
 **GOSPEL Luke 2.22--40** When the time came for their purification
 according to the law of Moses, Mary and Joseph brought Jesus up to
@@ -139,7 +139,7 @@ Michael and All Angels**
 
 **Sunday, 15 January 2023 in 44m (6--1--24 in C)**
 
-**1280** **Spliced Surprise Major** (5m)
+**1280** **Spliced Surprise Major** (5m)
 
 384 Cambridge; 320 Superlative; 256 London; 192 Rutland; 128 Bristol; 28
 com.
@@ -158,7 +158,7 @@ com.
 
 7Pam Thomas
 
-8Neil Jones (C)
+8Neil Jones (C)
 
 100th together: 4 & 8.
 
@@ -166,7 +166,7 @@ Wishing Daphne Tester a speedy recovery after her hip replacement.
 
 **Sunday, 22 January 2023 in 40m (6--1--24 in C)**
 
-**1272** **Surprise Minor** (2m)
+**1272** **Surprise Minor** (2m)
 
 720 Wells; 552 London.
 
@@ -180,7 +180,7 @@ Wishing Daphne Tester a speedy recovery after her hip replacement.
 
 5Rupert Cheeseman
 
-6Neil Jones (C)
+6Neil Jones (C)
 
 With the band\'s best wishes to Steve Newlands. Get well soon!
 

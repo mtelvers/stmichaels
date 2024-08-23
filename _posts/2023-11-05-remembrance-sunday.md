@@ -151,8 +151,8 @@ complex church life should all have a voice at diocesan level.
 
 **Christian Aid** has launched an emergency appeal to help people
 affected by the escalation of violence across Israel and the occupied
-Palestinian territory.  To make a donation, please visit the Middle East
-Crisis Appeal page on the  Christian Aid website -- christianaid.org.uk.
+Palestinian territory.  To make a donation, please visit the Middle East
+Crisis Appeal page on the  Christian Aid website -- christianaid.org.uk.
 
 **Chloe asks our prayers** for herself and her contemporaries as they
 follow their present demanding course.

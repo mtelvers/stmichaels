@@ -132,7 +132,7 @@ Sunday, 12 May 2024 in 41m (6--1--24 in C)
 5. Jacqueline Barlow
 6. Janice Byrne
 7. Kath White
-8. Neil Jones (C)
+8. Neil Jones (C)
 
 A 50th Birthday Compliment to Mark Elvers (8/5/24) and for Bell Sunday.
 Rung during Ascensiontide.

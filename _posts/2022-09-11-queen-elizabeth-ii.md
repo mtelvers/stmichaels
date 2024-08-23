@@ -147,7 +147,7 @@ Superlative, Yorkshire; 39 com.
 
 7Ray Taylor
 
-8Neil Jones (C)
+8Neil Jones (C)
 
 Rung in thanksgiving for the life of Father Paul Gibbons (1937-2022) on
 the Feast of St Birinus, first Bishop of Dorchester and Apostle of

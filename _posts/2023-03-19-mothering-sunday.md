@@ -101,7 +101,7 @@ Michael and All Angels
 
 Sunday, 5 March 2023 in 38m (6--1--24 in C)
 
-**1272** **Bourne Surprise Minor**
+**1272** **Bourne Surprise Minor**
 
 1Philip Jarvis
 
@@ -113,14 +113,14 @@ Sunday, 5 March 2023 in 38m (6--1--24 in C)
 
 5Mark Elvers
 
-6Neil Jones (C)
+6Neil Jones (C)
 
 Rung on the 2nd Sunday of Lent. Congratulations to Stan and Ann Jenner
 on their Diamond Wedding Anniversary (2/3/23)
 
 Friday, 10 March 2023 in 38m (6--1--24 in C)
 
-**1272** **Surprise Minor** (2m)
+**1272** **Surprise Minor** (2m)
 
 720 Wells Surprise, 552 London Surprise
 
@@ -134,13 +134,13 @@ Friday, 10 March 2023 in 38m (6--1--24 in C)
 
 5Stephen Coaker
 
-6Neil Jones (C)
+6Neil Jones (C)
 
 Birthday compliments today to Ann Jenner and Shona Clark.
 
 **Sunday, 12 March 2023 in 39m (6--1--24 in C)**
 
-**1272** **Ipswich Surprise Minor**
+**1272** **Ipswich Surprise Minor**
 
 1Cathy Cheeseman
 
@@ -152,7 +152,7 @@ Birthday compliments today to Ann Jenner and Shona Clark.
 
 5Pam Thomas
 
-6Neil Jones (C)
+6Neil Jones (C)
 
 Rung on the 3rd Sunday of Lent.
 

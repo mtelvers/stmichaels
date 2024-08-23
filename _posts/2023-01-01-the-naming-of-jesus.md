@@ -1,6 +1,6 @@
 **SUNDAY 1 JANUARY - THE NAMING OF JESUS HYMNS: 40, 33, 39, 31**
 
- 
+ 
 
 **FIRST READING: Numbers 6.22--27**
 
@@ -13,19 +13,19 @@ and give you peace."
 
 So they shall put my name on the Israelites, and I will bless them.'
 
- 
+ 
 
 **RESPONSORIAL PSALM 8**
 
- **R** **Your name, O Lord, is exalted in all the world!**
+ **R** **Your name, O Lord, is exalted in all the world!**
 
- 1 O Lord our governor, how exalted is your name in all the world!
+ 1 O Lord our governor, how exalted is your name in all the world!
 
 2 Out of the mouths of infants and children your majesty is praised
 above the heavens.
 
 3 You have set up a stronghold against your adversaries, to quell the
-enemy and the avenger. **R**
+enemy and the avenger. **R**
 
 4 When I consider your heavens, the work of your fingers,
 
@@ -36,7 +36,7 @@ the moon and the stars you have set in their courses,
 mere human beings, that you should seek them out?
 
 6 You have made them little lower than the angels; you adorn them with
-glory and honour. **R**
+glory and honour. **R**
 
 7 You give them mastery over the works of your hands; and put all things
 under their feet,
@@ -46,20 +46,20 @@ under their feet,
 9 The birds of the air, the fish of the sea, and whatsoever walks in the
 paths of the sea.
 
-10 O Lord our governor, how exalted is your name in all the world! **R**
+10 O Lord our governor, how exalted is your name in all the world! **R**
 
- 
+ 
 
 **SECOND READING: Galatians 4.4--7**
 
- When the fullness of time had come, God sent his Son, born of a woman,
+ When the fullness of time had come, God sent his Son, born of a woman,
 born under the law, in order to redeem those who were under the law, so
 that we might receive adoption as children. And because you are
 children, God has sent the Spirit of his Son into our hearts, crying,
 'Abba! Father!' So you are no longer a slave but a child, and, if a
 child, then also an heir, through God.
 
- 
+ 
 
 **GOSPEL: Luke 2.15--21**
 
@@ -144,7 +144,7 @@ https://canterburydiocese.org/financial-giving.php.
 Kent](https://dove.cccbr.org.uk/detail.php?tower=12644#_blank), St
 Michael and All Angels:**
 
-**Wednesday, 28 December 2022 in 2h 42 (6--1--24 in C) 5040** **Stedman
+**Wednesday, 28 December 2022 in 2h 42 (6--1--24 in C) 5040** **Stedman
 Triples**
 
 W.A.Cave (6 single variation)
@@ -157,7 +157,7 @@ W.A.Cave (6 single variation)
 
 4Paul N Mounsey
 
-5Stephen Coaker (C)
+5Stephen Coaker (C)
 
 6David J Dearnley
 

@@ -149,7 +149,7 @@ Michael and All Angels**
 
 **Friday, 27 January 2023 in 40m (6--1--24 in C)**
 
-**1272** **Carlisle Surprise Minor**
+**1272** **Carlisle Surprise Minor**
 
 1Janice Byrne
 
@@ -161,13 +161,13 @@ Michael and All Angels**
 
 5Pam Thomas
 
-6Neil Jones (C)
+6Neil Jones (C)
 
 1700th Quarter and final quarter on current hip: 2.
 
 **Sunday, 29 January 2023 in 43m (6--1--24 in C)**
 
-**1280 London Surprise Major**
+**1280 London Surprise Major**
 
 1Terry Barnard
 
@@ -183,6 +183,6 @@ Michael and All Angels**
 
 7Pam Thomas
 
-8Neil Jones (C)
+8Neil Jones (C)
 
 In memory of Sheila Barton who would have been 91 today.

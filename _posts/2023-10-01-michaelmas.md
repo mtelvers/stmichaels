@@ -21,46 +21,46 @@ this is the gate of heaven."**
 
 **RESPONSORIAL PSALM 103 *Response: Bless the Lord, O my soul***
 
-**The [Lord]{.smallcaps} has set his throne in heaven,\
+**The [Lord]{.smallcaps} has set his throne in heaven,\
 and his kingship has dominion over all. R**
 
-> Bless the [Lord]{.smallcaps}, you angels of his,\
+> Bless the [Lord]{.smallcaps}, you angels of his,\
 > you mighty ones who do his bidding, \*\
 > and hearken to the voice of his word. **R**
 >
-> Bless the [Lord]{.smallcaps}, all you his hosts, \*\
+> Bless the [Lord]{.smallcaps}, all you his hosts, \*\
 > you ministers of his who do his will. **R**
 >
-> Bless the [Lord]{.smallcaps}, all you works of his,\
+> Bless the [Lord]{.smallcaps}, all you works of his,\
 > in all places of his dominion; \*\
-> bless the [Lord]{.smallcaps}, O my soul. **R**
+> bless the [Lord]{.smallcaps}, O my soul. **R**
 
 **SECOND READING Revelation 12: 7-12 And war broke out in heaven;
 Michael and his angels fought against the dragon. The dragon and his
-angels fought back, but they were defeated, and there was no longer any
-place for them in heaven. The great dragon was thrown down, that ancient
+angels fought back, but they were defeated, and there was no longer any
+place for them in heaven. The great dragon was thrown down, that ancient
 serpent, who is called the Devil and Satan, the deceiver of the whole
 world---he was thrown down to the earth, and his angels were thrown down
 with him.** Then I heard a loud voice in heaven, proclaiming,\
 'Now have come the salvation and the power and the kingdom of our God
 and the authority of his Messiah,\
-for the accuser of our comrades has been thrown down, who accuses them
+for the accuser of our comrades has been thrown down, who accuses them
 day and night before our God.\
 But they have conquered him by the blood of the Lamb and by the word of
 their testimony,\
 for they did not cling to life even in the face of death.\
 Rejoice then, you heavens and those who dwell in them!\
-But woe to the earth and the sea, for the devil has come down to you\
-with great wrath, because he knows that his time is short!'
+But woe to the earth and the sea, for the devil has come down to you\
+with great wrath, because he knows that his time is short!'
 
 **GOSPEL John 1:47-51** When Jesus saw Nathanael coming towards him, he
 said of him, 'Here is truly an Israelite in whom there is no
-deceit!' Nathanael asked him, 'Where did you come to know me?' Jesus
+deceit!' Nathanael asked him, 'Where did you come to know me?' Jesus
 answered, 'I saw you under the fig tree before Philip called
-you.' Nathanael replied, 'Rabbi, you are the Son of God! You are the
-King of Israel!' Jesus answered, 'Do you believe because I told you that
+you.' Nathanael replied, 'Rabbi, you are the Son of God! You are the
+King of Israel!' Jesus answered, 'Do you believe because I told you that
 I saw you under the fig tree? You will see greater things than
-these.' And he said to him, 'Very truly, I tell you, you will see heaven
+these.' And he said to him, 'Very truly, I tell you, you will see heaven
 opened and the angels of God ascending and descending upon the Son of
 Man.'
 
@@ -95,10 +95,10 @@ angels -- and to be inspired by the generosity and dedication of those
 who saved to have those windows installed, one by one, 140 years ago.
 
 Margaret Smith, Ralph, Mary and Mike received a warm welcome at St
-Michael and All Angels\', Harbledown on Friday at the parish\'s Patronal
+Michael and All Angels\', Harbledown on Friday at the parish\'s Patronal
 Festival. Solemn Mass was celebrated by the Rector, Fr Peter Harnden,
 and the preacher was Fr Angus Beattie, Rector of St Andrew\'s, Deal and
-Holy Trinity, Ramsgate. Celebrations continued in the church hall with a
+Holy Trinity, Ramsgate. Celebrations continued in the church hall with a
 magnificent buffet-reception.
 
 **Our Harvest Thanksgiving is next Sunday,** October 8th. Everyone is
@@ -144,14 +144,14 @@ Angels
 
 Sunday, 24 September 2023 in 39m (6--1--24 in C)
 
-**1271** **Ipswich Surprise Minor**
+**1271** **Ipswich Surprise Minor**
 
 1. Jacqueline Barlow
 2. Emma Jarvis
 3. Philip Jarvis
 4. Rupert Cheeseman
 5. Mark Elvers
-6. Neil Jones (C)
+6. Neil Jones (C)
 
 Rung on the Feast of Our Lady of Walsingham.
 

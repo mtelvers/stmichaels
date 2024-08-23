@@ -66,7 +66,7 @@ Michael and All Angel**s
 
 Sunday, 13 November 2022 in 41m (6--1--24 in C)
 
-**1263** **Stedman Triples**
+**1263** **Stedman Triples**
 
 1Philip Jarvis
 
@@ -80,7 +80,7 @@ Sunday, 13 November 2022 in 41m (6--1--24 in C)
 
 6Pam Thomas
 
-7Neil Jones (C)
+7Neil Jones (C)
 
 8Mark Elvers
 
@@ -90,7 +90,7 @@ Rung half-muffled for Remembrance Sunday.
 
 Sunday, 20 November 2022 in 43m (6--1--24 in C)
 
-**1312** **Spliced Surprise Major** (4m)
+**1312** **Spliced Surprise Major** (4m)
 
 416 Cambridge; 320 Superlative; 288 each of London and Bristol; 32 com.
 
@@ -108,7 +108,7 @@ Sunday, 20 November 2022 in 43m (6--1--24 in C)
 
 7Pam Thomas
 
-8Neil Jones (C)Rung on the Feast of Christ the King.
+8Neil Jones (C)Rung on the Feast of Christ the King.
 
 ***Remembering David O\'Sullivan, 22/11/2019, R.I.P..***
 

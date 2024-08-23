@@ -139,7 +139,7 @@ Angels
 
 Monday, 20 November 2023 in 42m (6--1--24 in C)
 
-**1280** **Yorkshire Surprise Major**
+**1280** **Yorkshire Surprise Major**
 
 1. Isabel Hitchings
 2. Kath White
@@ -148,7 +148,7 @@ Monday, 20 November 2023 in 42m (6--1--24 in C)
 5. Richard Young
 6. Mark Elvers
 7. Mike Birkbeck
-8. Reg Hitchings (C) 
+8. Reg Hitchings (C) 
 
 Remembering David O'Sullivan 22/11/19 R.I.P.
 

@@ -8,7 +8,7 @@
 #### A great sign appeared in heaven: a woman adorned with the sun
 
 The sanctuary of God in heaven opened and the ark of the covenant could
-be seen inside it. 
+be seen inside it. 
 
 Now a great sign appeared in heaven: a woman, adorned with the sun,
 standing on the moon, and with the twelve stars on her head for a crown.
@@ -127,7 +127,7 @@ Friday, 5 August 2022 in 40m (6--1--24 in C)
 
 3Janice Byrne
 
-4Stephen Coaker (C)
+4Stephen Coaker (C)
 
 5Pam Thomas
 
@@ -147,7 +147,7 @@ Sunday, 7 August 2022 in 42m (6--1--24 in C)
 
 4Mark Elvers
 
-5Stephen Coaker (C)
+5Stephen Coaker (C)
 
 6Neil Jones
 

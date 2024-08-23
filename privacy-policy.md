@@ -7,11 +7,11 @@ The Parochial Church Council (PCC) of St Michael and All Angels, Maidstone
 
 ### 1\. Your personal data – what is it?
 
-Personal data relates to a living individual who can be identified from that data.  Identification can be by the information alone or in conjunction with any other information in the data controller’s possession or likely to come into such possession. The processing of personal data is governed by the General Data Protection Regulation (the “GDPR”).
+Personal data relates to a living individual who can be identified from that data.  Identification can be by the information alone or in conjunction with any other information in the data controller’s possession or likely to come into such possession. The processing of personal data is governed by the General Data Protection Regulation (the “GDPR”).
 
 ### 2\. Who are we?
 
-The PCC of St Michael and All Angels, Maidstone is the data controller (contact details below).  This means it decides how your personal data is processed and for what purposes.
+The PCC of St Michael and All Angels, Maidstone is the data controller (contact details below).  This means it decides how your personal data is processed and for what purposes.
 
 ### 3\. How do we process your personal data?
 

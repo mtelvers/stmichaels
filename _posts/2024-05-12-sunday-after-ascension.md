@@ -25,11 +25,11 @@ nor lingered in the way of sinners, nor sat in the seats of the
 scornful!  
 
 2 Their delight is in the law of the Lord,  
-and they meditate on his law day and night.*** R***
+and they meditate on his law day and night.*** R***
 
 3 They are like trees planted by streams of water, bearing fruit in due season,  
 with leaves that do not wither; everything they do shall  
-prosper. ***R***
+prosper. ***R***
 
 4 It is not so with the wicked:  
 they are like chaff which the wind blows away;  
@@ -38,7 +38,7 @@ they are like chaff which the wind blows away;
 nor the sinner in the council of the righteous.  
 
 6 For the Lord knows the way of the righteous,  
-but the way of the wicked is doomed. ***R***
+but the way of the wicked is doomed. ***R***
 
 **SECOND READING 1 John 5.9-13** *A reading from the first Letter of
 John:* If we receive human testimony, the testimony of God is greater;
@@ -141,7 +141,7 @@ Sunday, 28 April 2024 in 38m (6--1--24 in C)
 3. Emma Jarvis
 4. Mark Elvers
 5. Philip Jarvis
-6. Neil Jones (C)
+6. Neil Jones (C)
 
 In Thanksgiving for the life of Peggy Thresh, who died on 23/4/2024 aged
 102 years, and in memory of John Tester (24/4/22). R.I.P.
@@ -150,7 +150,7 @@ Sunday, 5 May 2024 in 39m (6--1--24 in C)
 
 **1271 Bamborough Surprise Minor**
 
-[Composed by Mark T
+[Composed by Mark T
 Elvers](https://bb.ringingworld.co.uk/comp.php?id=2297331)
 
 1. Emma Jarvis
@@ -158,7 +158,7 @@ Elvers](https://bb.ringingworld.co.uk/comp.php?id=2297331)
 3. Janice Byrne
 4. Mark Elvers
 5. Philip Jarvis
-6. Neil Jones (C)
+6. Neil Jones (C)
 
 Rung on the sixth Sunday of Easter.
 

@@ -127,14 +127,14 @@ St Michael and All Angels
 
 Sunday, 7 January 2024 in 41m (6--1--24 in C)
 
-**1272** **Norwich Surprise Minor**
+**1272** **Norwich Surprise Minor**
 
 1. Jacqueline Barlow
 2. Paul Barton
 3. Emma Jarvis
 4. Mark Elvers
 5. Philip Jarvis
-6. Neil Jones (C)
+6. Neil Jones (C)
 
 1st in m: 3. Remembering Joyce Neal, 5/1/1999 R.I.P.
 

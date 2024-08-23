@@ -31,7 +31,7 @@ to the LORD.' She left him there for the LORD.
 Unless the Lord builds the house,their labour is in vain who build it.
 
 Unless the Lord watches over the city, in vain the guard keeps
-vigil.*** R***
+vigil.*** R***
 
 It is in vain that you rise so early and go to bed so late;
 
@@ -39,7 +39,7 @@ vain, too, to eat the bread of toil, for he gives to his belovèd sleep.
 ***R***
 
 Children are a heritage from the Lord, and the fruit of the womb is a
-gift***. R***
+gift***. R***
 
 **SECOND READING Colossians 3. 12-17** As God's chosen ones, holy and
 beloved, clothe yourselves with compassion, kindness, humility,
@@ -132,7 +132,7 @@ and All Angels**
 
 Sunday, 3 March 2024 in 42m (6--1--24 in C)
 
-**1260** **Stedman Triples**
+**1260** **Stedman Triples**
 
 1. Stuart Cox
 2. Philip Jarvis
@@ -140,7 +140,7 @@ Sunday, 3 March 2024 in 42m (6--1--24 in C)
 4. Paul Barton
 5. Phillip Barnes
 6. Elizabeth Barnes
-7. Neil Jones (C)
+7. Neil Jones (C)
 8. Mark Elvers
 
 Remembering Bob Powell-Williams, whose funeral was on 27/2/2024, and

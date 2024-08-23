@@ -135,7 +135,7 @@ Angels](https://dove.cccbr.org.uk/tower/12644)**
 3. Philip Jarvis
 4. Mark Elvers
 5. Rupert Cheeseman
-6. Neil Jones (C)
+6. Neil Jones (C)
 
 Rung on Bell Sunday and on the Feast of Matthias the Apostle.
 
@@ -150,7 +150,7 @@ Rung on Bell Sunday and on the Feast of Matthias the Apostle.
 5. Karen Lebon
 6. Rod Lebon
 7. Philip Jarvis
-8. Neil Jones (C)
+8. Neil Jones (C)
 
 Rung on the Feast of Helena, Protector of the Holy Places, 330.
 

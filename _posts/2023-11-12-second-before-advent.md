@@ -21,7 +21,7 @@ to save them on the day of the Lord's wrath; in the fire of his passion
 the whole earth shall be consumed; for a full, a terrible end he will
 make of all the inhabitants of the earth.
 
-**RESPONSORIAL PSALM 90 *Response:  In every age, O Lord, you have been
+**RESPONSORIAL PSALM 90 *Response:  In every age, O Lord, you have been
 our refuge.*\
 You turn man back to dust, saying, "Return, O children of men."\
 For a thousand years in your sight are as yesterday, now that it is
@@ -147,14 +147,14 @@ Angels**
 
 Friday, 3 November 2023 in 40m (6--1--24 in C)
 
-**1271** **High Halden Surprise Minor**
+**1271** **High Halden Surprise Minor**
 
-1.  Janice Byrne
-2.  Jacqueline Barlow
-3.  Philip Jarvis
-4.  Mark Elvers
-5.  Pam Thomas
-6.  Neil Jones (C) 
+1.  Janice Byrne
+2.  Jacqueline Barlow
+3.  Philip Jarvis
+4.  Mark Elvers
+5.  Pam Thomas
+6.  Neil Jones (C) 
 
 An 80th birthday compliment to Margaret Funnell (2/11/23).
 
@@ -163,14 +163,14 @@ Teacher of the Faith (1600) snd Martin of Porres, Friar (1639).
 
 Sunday, 5 November 2023 in 39m (6--1--24 in C)
 
-**1271** **Ipswich Surprise Minor**
+**1271** **Ipswich Surprise Minor**
 
-1.  Philip Jarvis
-2.  Jacqueline Barlow
-3.  Paul Barton
-4.  Mark Elvers
-5.  Pam Thomas
-6.  Neil Jones (C) 
+1.  Philip Jarvis
+2.  Jacqueline Barlow
+3.  Paul Barton
+4.  Mark Elvers
+5.  Pam Thomas
+6.  Neil Jones (C) 
 
 In memory of Shiela Ann Barton, who passed to her final rest on 4th
 November 2022.

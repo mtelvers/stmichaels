@@ -178,7 +178,7 @@ Holy Week -- have a look in your garden and see what you could bring!
 **Kent County Association: Maidstone, Kent, St Michael and All Angels**  
 Sunday, 19 March 2023 in 40m (6-1-24 in C)
 
-1272 Surprise Minor (2m)   
+1272 Surprise Minor (2m)   
 553 London, 720 Cambridge.
 
 1. Terry Barnard
@@ -186,7 +186,7 @@ Sunday, 19 March 2023 in 40m (6-1-24 in C)
 3. Peter Richardson
 4. Mark Elvers
 5. Rupert Cheeseman
-6. Neil Jones (C) 
+6. Neil Jones (C) 
 
 Rung on Mothering Sunday.
 

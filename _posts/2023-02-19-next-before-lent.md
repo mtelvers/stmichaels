@@ -118,7 +118,7 @@ Kent**](https://dove.cccbr.org.uk/detail.php?tower=12644#_blank)
 
 Sunday, 5 February 2023 in 41m (6--1--24 in C)
 
-**1320** **Spliced Surprise Minor** (2m)
+**1320** **Spliced Surprise Minor** (2m)
 
 (720 York; 600 Durham; 10 com.
 
@@ -132,6 +132,6 @@ Sunday, 5 February 2023 in 41m (6--1--24 in C)
 
 5Rupert Cheeseman
 
-6Neil Jones (C)
+6Neil Jones (C)
 
 Rung on the Saints\' Day of the Martyrs of Japan, 1597.

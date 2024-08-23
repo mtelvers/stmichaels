@@ -38,7 +38,7 @@ contend with me? Let us stand up together. Who are my adversaries? Let
 them confront me. It is the Lord [God]{.smallcaps} who helps me; who
 will declare me guilty?
 
-**PSALM Psalm 31.9--16** R **My God, my God, why have you forsaken me?**
+**PSALM Psalm 31.9--16** R **My God, my God, why have you forsaken me?**
 
 9 Have mercy on me, O Lord, for I am in trouble; my eye is consumed with
 sorrow,
@@ -47,7 +47,7 @@ and also my throat and my belly.
 
 10 For my life is wasted with grief, and my years with sighing;
 
-my strength fails me because of affliction, and my bones are consumed. R
+my strength fails me because of affliction, and my bones are consumed. R
 
 11 I have become a reproach to all my enemies, and even to my
 neighbours,
@@ -56,20 +56,20 @@ a dismay to those of my acquaintance; when they see me in the street
 they avoid me.
 
 12 I am forgotten like the dead, out of mind; I am as useless as a
-broken pot. R
+broken pot. R
 
 13 For I have heard the whispering of the crowd; fear is all around;
 
 they put their heads together against me; they plot to take my life.
 
 14 But as for me, I have trusted in you, O Lord. I have said, 'You are
-my God. R
+my God. R
 
 15 My times are in your hand; rescue me from the hand of my enemies, and
 from those who persecute me.
 
 16 Make your face to shine upon your servant, and in your
-loving-kindness save me.' R
+loving-kindness save me.' R
 
 **SECOND READING Philippians 2. 5-11** Let the same mind be in you that
 was in Christ Jesus, who, though he was in the form of God, did not
@@ -94,9 +94,9 @@ you are new to St Michael\'s, do join us in the Vestry Hall after the
 service, so that we can welcome you properly.
 
 **Fr John writes:** Many, many thanks to everyone for the truly
-wonderful Licensing Service on Thursday evening.  I know a lot of work
+wonderful Licensing Service on Thursday evening.  I know a lot of work
 went into planning the event, preparing the church, and providing
-excellent refreshments and music on the day itself.  Thank you to all of
+excellent refreshments and music on the day itself.  Thank you to all of
 you who came, and to all who contributed in whatever way. It was a
 wonderful occasion and I am so grateful to you all.
 

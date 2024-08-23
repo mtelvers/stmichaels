@@ -169,7 +169,7 @@ Sunday, 28 January 2024 in 45m (6--1--24 in C)
 5. Jane L Kostelnyk
 6. Mark Elvers
 7. Mike Birkbeck
-8. Neil Jones (C)
+8. Neil Jones (C)
 
 Rung on the Saint\'s Day of Thomas Aquinas, Priest, Philosopher and
 Teacher of the Faith, 1274.

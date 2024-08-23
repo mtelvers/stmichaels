@@ -132,19 +132,19 @@ St Michael and All Angels
 
 Friday, 22 July 2022 in 43m (6--1--24 in C)
 
-**1440** **Kelso Surprise Minor**
+**1440** **Kelso Surprise Minor**
 
-1 Terry Barnard
+1 Terry Barnard
 
-2 Jacqueline Barlow
+2 Jacqueline Barlow
 
-3 Janice Byrne
+3 Janice Byrne
 
-4 Stephen Coaker (C)
+4 Stephen Coaker (C)
 
-5 Pam Thomas
+5 Pam Thomas
 
-6 Neil Jones
+6 Neil Jones
 
 Rung in thanksgiving for the life of Irene Horton.
 
@@ -157,25 +157,25 @@ St Michael and All Angels
 
 Sunday, 31 July 2022 in 41m (6--1--24 in C)
 
-**1280** **Spliced Surprise Major** (4m)
+**1280** **Spliced Surprise Major** (4m)
 
 352 Cambridge, Yorkshire; 288 Rutland, Superlative; 36 com.
 
-1 Doug Davis
+1 Doug Davis
 
-2 Caroline Stockmann
+2 Caroline Stockmann
 
-3 Jacqueline Barlow
+3 Jacqueline Barlow
 
-4 Mark Elvers
+4 Mark Elvers
 
-5 Rona Joiner
+5 Rona Joiner
 
-6 Rupert Cheeseman
+6 Rupert Cheeseman
 
-7 Pam Thomas
+7 Pam Thomas
 
-8 Neil Jones (C) 
+8 Neil Jones (C) 
 
 Remembering Jason Adam Orwin, 3/8/2020. R.I.P.
 

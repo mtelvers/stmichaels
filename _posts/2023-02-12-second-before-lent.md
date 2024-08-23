@@ -151,7 +151,7 @@ ministry like Anna Chaplaincy, to take a fresh look at whatever we are
 already doing in the service of our church, and to learn from visiting
 speakers and from one another. Eleanor will have space in her car.
 Information and booking via:
- [https://staugustinescollege](https://staugustinescollege/)[.](https://staugustinescollege.us14.list-manage.com/track/click?u=99e8484fc412287e9a19bbe7d&id=5e6f64f514&e=e7f3176340#_blank)
+ [https://staugustinescollege](https://staugustinescollege/)[.](https://staugustinescollege.us14.list-manage.com/track/click?u=99e8484fc412287e9a19bbe7d&id=5e6f64f514&e=e7f3176340#_blank)
 
 **Foster Carers** do a wonderful job and are always needed. The Diagrama
 fostering agency is running an information event on Thursday, 23^rd^

@@ -141,23 +141,23 @@ Kent**](https://dove.cccbr.org.uk/detail.php?tower=12644#_blank)
 
 Sunday, 18 December 2022 in 43m (6--1--24 in C)
 
-**1344** **Double Norwich Court Bob Major**
+**1344** **Double Norwich Court Bob Major**
 
-1 Mark Elvers
+1 Mark Elvers
 
-2 Rona Joiner
+2 Rona Joiner
 
-3 Jacqueline Barlow
+3 Jacqueline Barlow
 
-4 Paul Barton
+4 Paul Barton
 
-5 Janice Byrne
+5 Janice Byrne
 
-6 Philip Jarvis
+6 Philip Jarvis
 
-7 Pam Thomas
+7 Pam Thomas
 
-8 Neil Jones (C) 
+8 Neil Jones (C) 
 
 Rung prior to the Carol Service.
 

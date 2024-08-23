@@ -66,7 +66,7 @@ Angels
 
 Sunday, 21 January 2024 in 43m (6--1--24 in C)
 
-**1280** **Bristol Surprise Major**
+**1280** **Bristol Surprise Major**
 
 1Jacqueline Barlow
 
@@ -82,7 +82,7 @@ Sunday, 21 January 2024 in 43m (6--1--24 in C)
 
 7Phillip Barnes
 
-8Neil Jones (C)
+8Neil Jones (C)
 
 80th Birthday Compliments to Eleanor Relle (23/1) and Catherine Lewis
 (22/1).
@@ -203,7 +203,7 @@ Thank you so much for the lovely card you signed which arrived with me
 this week -- the photographs of the church on the front are stunning,
 and show what a special place St Michael's is. I am looking forward very
 much to being amongst you and to sharing the next phase of life and
-ministry at St Michael and All Angels with you. 
+ministry at St Michael and All Angels with you. 
 
 Maidstone will be completely new to me, so there will be the excitement
 of exploring new places, learning about the history and culture of the
@@ -214,7 +214,7 @@ I'm hoping for some dry weather !!
 I look forward to meeting as many of you as possible at my Licensing
 Service (21st March) and it will be very special just a few days later
 for us to walk through Holy Week and Easter together at the very
-beginning of my ministry here.  I also have the dates of the August
+beginning of my ministry here.  I also have the dates of the August
 Walsingham Pilgrimage in my diary and I hope that this, too, will be
 something which many of us will be able to enjoy together as we worship,
 relax and build friendships in that wonderful, Holy place.
@@ -223,7 +223,7 @@ My prayer is that as we go forward into this next phase in the life of
 St Michael's, each one of us will encounter Christ afresh in Word and
 Sacrament, to be renewed in faith and hope and love to be His people in
 the world -- to bring the light of the glorious Gospel of Christ into
-every part of our parish community and beyond.  And to do it with joy !!
+every part of our parish community and beyond.  And to do it with joy !!
 
 With my prayers,
 

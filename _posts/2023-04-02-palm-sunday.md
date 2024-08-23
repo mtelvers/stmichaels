@@ -142,7 +142,7 @@ Friday, 24 March 2023 in 39m (6-1-24 in C)
 3. Terry Barnard  
 4. Mark Elvers  
 5. Pam Thomas  
-6. Neil Jones (C)  
+6. Neil Jones (C)  
 
 Rung in Commemoration of Paul Couturier Priest, Ecumenist (1953) and
 Oscar Romero, Archbishop of San Salvador, Martyr 1980.
