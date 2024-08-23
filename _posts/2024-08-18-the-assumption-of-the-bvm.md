@@ -88,7 +88,7 @@ her home.
 
 # NEWS FROM ST MICHAEL\'S
 
-## Priest-in-Charge Fr John Ainslie ([revjohnainslie\@gmail.com](mailto:revjohnainslie@gmail.com); 01628 629827)
+## Priest-in-Charge Fr John Ainslie ([revjohnainslie@gmail.com](mailto:revjohnainslie@gmail.com); 01628 629827)
 
 **A very warm welcome** to any new readers, and to visitors and
 newcomers to St Michael\'s. If you are new to St Michael\'s, do join us

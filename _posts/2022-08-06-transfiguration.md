@@ -191,7 +191,7 @@ accommodation at two excellent family-run hotels (one in Jerusalem, one
 in Galilee), entrance fees and gratuities. This pilgrimage follows the
 same pattern as the truly wonderful pilgrimage of November 2019. For an
 itinerary, booking form or further information, email Eleanor
-(eleanorgrelle\@gmail.com).
+(eleanorgrelle@gmail.com).
 
 **Don\'t Forget: Saturday 13th August is Richborough Family Festival
 Day** at St Albans. Mass in the Cathedral at 12 noon will be followed by
