@@ -1,5 +1,5 @@
 
-***A very warm welcome*** to any new readers, and to visitors and
+**A very warm welcome** to any new readers, and to visitors and
 newcomers to St Michael\'s. A special welcome-back and thanks to Fr Paul
 Matthias, our celebrant this morning, who will also kindly be saying
 Mass for us on **Thursday at 10.30 am.** If you are new to St
@@ -15,9 +15,9 @@ Epiphany ceremony is a simple but meaningful act of witness which
 symbolises Christian willingness to offer hospitality and shelter to the
 Magi on their journey to Bethlehem, and also, by extension in today's
 world, to welcome all and sundry who love or are seeking the Lord's
-Christ."**
+Christ.**"
 
-***Don\'t forget* our Service of Music and Readings for Epiphany,** with
+**Don\'t forget our Service of Music and Readings for Epiphany,** with
 an augmented choir directed by Gareth James, which takes place at 5 pm
 today and will be followed by seasonal refreshments in the Vestry Hall.
 Could **you** invite a friend or family member who doesn\'t yet know St
@@ -52,18 +52,11 @@ via Eventbrite.
 
 **From Our Tower:**
 
-**Kent County Association,
-[Maidstone](https://dove.cccbr.org.uk/tower/12644#_blank)**[,
-Kent](https://dove.cccbr.org.uk/tower/12644#_blank)
-
-St Michael and All Angels
-
 Sunday, 31 December 2023 in 2h 40 (6--1--24 in C)
 
-**5056** **Yorkshire Surprise Major**
+**5056 Yorkshire Surprise Major**
 
-[Composed by Anthony J
-Cox](https://bb.ringingworld.co.uk/comp.php?id=2294989)
+[Composed by Anthony J Cox](https://bb.ringingworld.co.uk/comp.php?id=2294989)
 
 1. John E Haimes
 2. Josephine D Horton
@@ -79,15 +72,15 @@ Cox](https://bb.ringingworld.co.uk/comp.php?id=2294989)
 Half-muffled for the repose of the souls of the faithful departed during
 the last year.
 
-***Can someone very kindly take charge of washing and ironing the altar
+**Can someone very kindly take charge of washing and ironing the altar
 linen** (corporals, lavabo towels and purificators)? We are most
 grateful to Katja, who has done this in the recent past but is now
 unable to continue. We can arrange to deliver and collect if transport
 poses a problem. Please speak to Jonathan if you think you may be able
-to help.*
+to help.
 
-***Thy Kingdom Come** is an international and ecumenical movement
+**Thy Kingdom Come** is an international and ecumenical movement
 praying for the spread of the Good News among those who have not yet
 heard it. In particular, there will be a Wave of Prayer in May 2024
 between Ascension and Pentecost. Visit the website for more
-information.*
+information.
