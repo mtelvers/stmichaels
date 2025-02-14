@@ -3,9 +3,11 @@ Hymns NEH 427, 353, 342, 475
 **St Michael and All Angels -- a Parish under the Patronage of Our Lady
 of Walsingham**
 
-**COLLECT:** O God, you know us to be set in the midst of so many and
-great dangers, that by reason of the frailty of our nature we cannot
-always stand upright:
+# COLLECT
+
+O God, you know us to be set in the midst of so many and great dangers,
+that by reason of the frailty of our nature we cannot always stand
+upright:
 
 grant to us such strength and protection as may support us in all
 dangers and carry us through all temptations;

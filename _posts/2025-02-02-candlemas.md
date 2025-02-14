@@ -3,7 +3,9 @@ Hymns NEH 157, 161, 44, 235
 **St Michael and All Angels -- a Parish under the Patronage of Our Lady
 of Walsingham**
 
-**COLLECT:** Almighty and ever-living God, clothed in majesty, whose
+# COLLECT
+
+Almighty and ever-living God, clothed in majesty, whose
 beloved Son was this day presented in the Temple in substance of our
 flesh:
 

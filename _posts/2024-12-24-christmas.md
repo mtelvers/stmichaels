@@ -3,12 +3,13 @@ Hymns NEH 34, 32, 35, 30
 **St Michael and All Angels -- a Parish under the Patronage of Our Lady
 of Walsingham**
 
-**COLLECT:** Eternal God, who made this most holy night to shine with
-the brightness of your one true light: bring us, who have known the
-revelation of that light on earth, to see the radiance of your heavenly
-glory; through Jesus Christ your Son our Lord, who is alive and reigns
-with you, in the unity of the Holy Spirit, one God, now and for ever.
-Amen.
+# COLLECT
+
+Eternal God, who made this most holy night to shine with the brightness
+of your one true light: bring us, who have known the revelation of that
+light on earth, to see the radiance of your heavenly glory; through
+Jesus Christ your Son our Lord, who is alive and reigns with you, in
+the unity of the Holy Spirit, one God, now and for ever.  Amen.
 
 # FIRST READING (Isaiah 9: 2-7)
 

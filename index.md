@@ -26,3 +26,5 @@ feature_row:
 
 {% include feature_row %}
 
+Priest-in-Charge Fr John Ainslie ([revjohnainslie@gmail.com](mailto:revjohnainslie@gmail.com); 01628 629827)
+
