@@ -1,5 +1,4 @@
-**Third Sunday before Lent 16th February 2025 Hymns NEH 436, 302, 341,
-387**
+Hymns NEH 436, 302, 341, 387
 
 **St Michael and All Angels -- a Parish under the Patronage of Our Lady
 of Walsingham**
