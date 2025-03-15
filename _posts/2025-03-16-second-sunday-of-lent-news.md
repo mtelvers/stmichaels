@@ -48,15 +48,28 @@ Farrington, Olga Danes-Volkov, Pope Francis.
 faithfully served God in this Church in previous generations, and we
 pray for those whose year's mind occurs this week: Arthur Tester.
 
-**FROM THE BELLTOWER:** Friday, 7 March 2025 **1296 Bamborough Surprise Minor**
+**FROM THE BELLTOWER:**
 
-1 Mark Elvers 2 Jacqueline Barlow 3 Philip Jarvis 4 Pam Thomas 5 Stephen
-Coaker 6 Neil Jones (C)
+Friday, 7 March 2025 **1296 Bamborough Surprise Minor**
+
+1 Mark Elvers\
+2 Jacqueline Barlow\
+3 Philip Jarvis\
+4 Pam Thomas\
+5 Stephen Coaker\
+6 Neil Jones (C)
 
 Rung on the World Day of Prayer
 
 Sunday, 9 March 2025 **1296 Stedman Triples**
 
-1 Philip Jarvis 2 Stuart Cox 3 Jacqueline Barlow 4 Emma Jarvis 5 Jane L Kostelnyk 6 Mark Elvers 7 Neil Jones (C) 8 Pam Thomas
+1 Philip Jarvis\
+2 Stuart Cox\
+3 Jacqueline Barlow\
+4 Emma Jarvis\
+5 Jane L Kostelnyk\
+6 Mark Elvers\
+7 Neil Jones (C)\
+8 Pam Thomas
 
 Rung on the First Sunday of Lent.
