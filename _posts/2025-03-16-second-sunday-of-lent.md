@@ -19,9 +19,9 @@ and follow all such things as are agreeable to the same; through our
 Lord Jesus Christ, who is alive and reigns with you, in the unity of
 the Holy Spirit, one God, now and for ever. Amen.
 
-# FIRST READING (Genesis 5: 1-12, 17-18)
+# FIRST READING (Genesis 5: 1-12, 17-18)
 
-## A reading from the book of Genesis.
+## A reading from the book of Genesis.
 
 After these things the word of the Lord came to Abram in a vision, 'Do
 not be afraid, Abram, I am your shield; your reward shall be very
@@ -54,7 +54,7 @@ the river of Egypt to the great river, the river Euphrates.
 
 # RESPONSORIAL PSALM (From Psalm 27)
 
-## Response: The Lord is my life and my salvation.
+## Response: The Lord is my life and my salvation.
 
 1\. The Lord is my light and my salvation;\
 whom shall I fear?\
@@ -76,9 +76,9 @@ in the land of the living.\
 Wait for the Lord, be strong;\
 hold firm, and wait for the Lord!  ***R.***
 
-# SECOND READING (Philippians 3:17 -- 4:1)
+# SECOND READING (Philippians 3:17 -- 4:1)
 
-## A reading from the letter of Paul to the Philippians.
+## A reading from the letter of Paul to the Philippians.
 
 Brothers and sisters, join in imitating me, and observe those who live
 according to the example you have in us. For many live as enemies of the
