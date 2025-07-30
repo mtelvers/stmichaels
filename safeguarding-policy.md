@@ -28,7 +28,11 @@ Any child wishing to talk about a problem can contact Childline 0800 1111
 
 Any parent or carer wishing to talk about parenting problems can contact Family Lives on 0808 800 2222
 
-### Policy Statements
+### Policy Documents and Guidance
+
+The Church of England's comprehensive guidance and policy on safeguarding can be found at:  [Safeguarding e-manual](https://www.churchofengland.org/safeguarding/safeguarding-e-manual)
+
+Other policy documents can be found at:
 
 *   [Safeguarding Children and Vulnerable Adults from Harm – Diocesan guidelines](https://www.canterburydiocese.org/media/forms/safeguarding/diocesanguidelines.pdf)
 *   [Promoting a Safer Church; House of Bishops policy statement (2017)](https://www.churchofengland.org/media/17545)
