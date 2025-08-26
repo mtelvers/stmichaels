@@ -45,5 +45,5 @@ Rung on Easter Day. "Jesus Christ is risen today, Alleluia!
 
 
                 SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s
-                Church simply click the QR code or go to:
-                www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+                Church go to:
+                [www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](https://www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)
