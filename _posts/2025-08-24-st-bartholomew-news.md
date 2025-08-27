@@ -46,7 +46,5 @@ Rutland, Superlative; 36 com. 1 Emma Jarvis 2 Philip Jarvis 3 Jacqueline Barlow 
 6 Mark Elvers 7 Callum Clark 8 Neil Jones (C)
 A 70th Birthday Compliment on the 2nd August to Theresa Higgins (nee Bourke), who learnt to ring in our tower.
 
-             SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s Church
-             simply click the QR code or go to:
-
-             www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s Church go to:
+[www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)
