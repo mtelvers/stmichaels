@@ -40,7 +40,5 @@ We pray for the recently departed, especially Paul Jones. We remember those who 
 this Church in previous generations, and we pray for those whose year’s mind occurs this week: Rose Logan green,
 Paul Gibbons (Pr), Emily Aldous.
 
-             SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s Church
-             simply click the QR code or go to:
-
-             www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
+[www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)

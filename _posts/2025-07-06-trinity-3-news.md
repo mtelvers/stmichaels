@@ -36,7 +36,5 @@ FROM THE BELLTOWER: Monday, 30 June 1260 St Martin's Bob Triples 1 Philip Jarvis
 Jacqueline Barlow 4 Steve Newlands 5 Janice Byrne 6 Mark Elvers 7 Stephen Coaker (C) 8 Pam Thomas
 With congratulations to Father Paul Matthias on 30 years in the priesthood.
 
-             SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s Church
-             simply click the QR code or go to:
-
-             www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
+[www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)

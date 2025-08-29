@@ -44,7 +44,5 @@ FROM THE BELLTOWER: Friday, 8 August, 1272 Chester Surprise Minor 1 Steve Newlan
 3 Jane L Kostelnyk 4 Mark Elvers 5 Pam Thomas 6 Neil Jones (C)
 Remembering Josephine Heath, 7/8/22, R.I.P.
 
-             SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s Church
-             simply click the QR code or go to:
-
-             www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
+[www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)

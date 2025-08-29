@@ -42,7 +42,5 @@ Lincolnshire; 160 Yorkshire; 35 com.
 Birkbeck 8 Neil Jones (C)
 
 
-             SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s Church
-             simply click the QR code or go to:
-
-             www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
+[www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)

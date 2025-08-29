@@ -20,6 +20,5 @@ We pray for the recently departed. We remember those who have faithfully served 
 generations, and we pray for those whose year’s mind occurs this week: Mary Flisher, Margaret Kent, Ellen Tame
 
 
-                 SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s
-                 Church simply click the QR code or go to:
-                 www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
+[www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)

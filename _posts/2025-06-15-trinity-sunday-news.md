@@ -52,6 +52,5 @@ FROM THE BELLTOWER: Sunday, 8 June 20251260 Stedman Triples 1 Mike Birkbeck 2 St
 Jacqueline Barlow 4 Janice Byrne 5 Philip Jarvis 6 Pam Thomas 7 Neil Jones (C) 8Mark Elvers
 Rung for Pentecost. And a wedding compliment to Sarah Jenner and Tim Ansell on their recent wedding.
 
-                 SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s
-                 Church simply click the QR code or go to:
-                 www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
+[www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)

@@ -46,8 +46,5 @@ Burbridge, Edna Francis.
 FROM THE BELLTOWER: Sunday 24 August 1260 Grandsire Triples 1 Michael A Birkbeck 2 Callum Clark 3
 George Marks 4 Jacqueline M Barlow 5 Emma Jarvis 6 Svetlana Sokolova 7 Philip Jarvis (C) 8 Mark Elvers
 Rung for the Feast of St Bartholomew The Apostle. Remembering Father Paul Gibbons 23/08/22 R.I.P.
-
-             SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s Church
-             simply click the QR code or go to:
-
-             www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
+[www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)

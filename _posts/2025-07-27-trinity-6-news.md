@@ -35,7 +35,5 @@ Barlow 4 Mark Elvers 5 Philip Jarvis 6 Paul Barton 7 Nigel Pointer 8 Neil Jones 
 Remembering Jeanette Ardley, 18/7/16, RIP, and Donald Niblett, 14/7/25, R.I.P.
 
 
-             SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s Church
-             simply click the QR code or go to:
-
-             www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
+[www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)

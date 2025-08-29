@@ -48,6 +48,5 @@ FROM THE BELLTOWER: Friday, 13 June 1440 Surprise Minor (2m) 720 Bacup, 720 Bamb
 1 Stephen Coaker 2 Jacqueline Barlow 3 Philip Jarvis 4 Mark Elvers 5 Pam Thomas 6 Neil Jones (C)
 
 
-                 SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael’s
-                 Church simply click the QR code or go to:
-                 www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/
+SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
+[www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)
