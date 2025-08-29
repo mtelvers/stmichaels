@@ -3,7 +3,7 @@ Hymns NEH 197, 231, 357, 362
 **St Michael and All Angels -- a Parish under the Patronage of Our Lady
 of Walsingham**
 
-# FIRST READING (Isaiah 25: 6-9)
+# FIRST READING (Isaiah 25: 6-9)
 
 ## A reading from the Prophet Isaiah.
 
@@ -19,9 +19,9 @@ It will be said on that day, Lo, this is our God; we have waited for
 him, so that he might save us. This is the Lord for whom we have waited;
 let us be glad and rejoice in his salvation.
 
-# RESPONSORIAL PSALM (From Ps 24)
+# RESPONSORIAL PSALM (From Ps 24)
 
-## Response: We seek your face O Lord.
+## Response: We seek your face O Lord.
 
 1\. Who shall ascend the hill of the Lord?\
 And who shall stand in his holy place?\
@@ -33,7 +33,7 @@ And vindication from the God of their salvation.\
 Such are those who seek the Lord\
 who seek the face of the God of Jacob. ***R.***
 
-# SECOND READING (Revelation 7: 9-14)
+# SECOND READING (Revelation 7: 9-14)
 
 ## A reading from the Revelation to St John the Divine.
 

@@ -3,7 +3,7 @@ Hymns NEH 47, 52, 36, 49
 **St Michael and All Angels -- a Parish under the Patronage of Our Lady
 of Walsingham**
 
-# FIRST READING (Isaiah 60: 1-6)
+# FIRST READING (Isaiah 60: 1-6)
 
 ## A reading from the prophet Isaiah.
 
@@ -37,7 +37,7 @@ and the needy who are helpless.\
 He will have pity on the weak\
 and save the lives of the poor. ***R.***
 
-# SECOND READING (Ephesians 3: 1-12)
+# SECOND READING (Ephesians 3: 1-12)
 
 ## A reading from the letter of St Paul to the Ephesians.
 

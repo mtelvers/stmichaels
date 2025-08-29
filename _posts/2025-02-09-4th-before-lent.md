@@ -40,7 +40,7 @@ Lord saying, 'Whom shall I send, and who will go for us?' And I said,
 
 # RESPONSORIAL PSALM (From Ps 138)
 
-## Response: In the presence of the angels I will praise you O Lord.
+## Response: In the presence of the angels I will praise you O Lord.
 
 1\. I thank you, Lord, with all my heart;\
 You have heard the words of my mouth.\

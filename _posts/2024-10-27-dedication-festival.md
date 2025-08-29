@@ -41,7 +41,7 @@ servant prays towards this place. Hear the plea of your servant and of
 your people Israel when they pray towards this place; O hear in heaven
 your dwelling-place; heed and forgive.
 
-# RESPONSORIAL PSALM (From Ps 122)
+# RESPONSORIAL PSALM (From Ps 122)
 
 ## Response: I was glad when they said unto me 'We will go into the house of the Lord'.
 

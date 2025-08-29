@@ -52,7 +52,7 @@ has become the cornerstone.\
 This is the Lord's doing\
 and it is glorious in our sight. ***R.***
 
-# SECOND READING (1 Corinthians 15: 19-26)
+# SECOND READING (1 Corinthians 15: 19-26)
 
 ## A reading from the first letter of Paul to the Corinthians.
 

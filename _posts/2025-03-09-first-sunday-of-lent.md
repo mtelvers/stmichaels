@@ -71,7 +71,7 @@ there is no distinction between Jew and Greek; the same Lord is Lord of
 all and is generous to all who call on him. For, 'Everyone who calls on
 the name of the Lord shall be saved.'
 
-# HOLY GOSPEL (Luke 4: 1-13) 
+# HOLY GOSPEL (Luke 4: 1-13) 
 
 Jesus, full of the Holy Spirit, returned from the Jordan and was led by
 the Spirit in the wilderness, where for forty days he was tempted by the

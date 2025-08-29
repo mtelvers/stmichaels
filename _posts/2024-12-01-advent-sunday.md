@@ -19,7 +19,7 @@ with you, in the unity of the Holy Spirit,
 
 one God, now and for ever. Amen.
 
-# FIRST READING (Jeremiah 33: 14-16)
+# FIRST READING (Jeremiah 33: 14-16)
 
 ## A reading from the prophet Jeremiah.
 
@@ -45,7 +45,7 @@ he leads the humble in the ways of righteousness.\
 The paths of the Lord are steadfast love and faithfulness\
 for those who keep his commandments. ***R.***
 
-# SECOND READING (1 Thessalonians 3:12 -- 4:2)
+# SECOND READING (1 Thessalonians 3:12 -- 4:2)
 
 ## A reading from the first letter to the Thessalonians.
 

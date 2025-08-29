@@ -3,7 +3,7 @@ Hymns NEH 134, 332, 415, 443
 **St Michael and All Angels -- a Parish under the Patronage of Our Lady
 of Walsingham**
 
-# THE COLLECT FOR THE FEAST OF CHRIST THE KING
+# THE COLLECT FOR THE FEAST OF CHRIST THE KING
 
 Eternal Father, whose Son Jesus Christ ascended to the throne of heaven\
 that he might rule over all things as Lord and King:\

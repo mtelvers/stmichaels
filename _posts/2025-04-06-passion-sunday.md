@@ -3,7 +3,7 @@ Hymns NEH 94, 84, 273, 92
 **St Michael and All Angels -- a Parish under the Patronage of Our Lady
 of Walsingham**
 
-# COLLECT
+# COLLECT
 
 Most merciful God, who by the death and resurrection of
 your Son Jesus Christ delivered and saved the world: grant that by faith
@@ -15,7 +15,7 @@ you, in the unity of the Holy Spirit, one God, now and for ever. Amen.
 
 # FIRST READING (Isaiah 43: 16-21)
 
-## A reading from the prophet Isaiah.
+## A reading from the prophet Isaiah.
 
 Thus says the Lord, who makes a way in the sea, a path in the mighty
 waters, who brings out chariot and horse, army and warrior; they lie

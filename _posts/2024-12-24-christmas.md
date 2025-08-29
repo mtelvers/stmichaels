@@ -11,9 +11,9 @@ light on earth, to see the radiance of your heavenly glory; through
 Jesus Christ your Son our Lord, who is alive and reigns with you, in
 the unity of the Holy Spirit, one God, now and for ever.  Amen.
 
-# FIRST READING (Isaiah 9: 2-7)
+# FIRST READING (Isaiah 9: 2-7)
 
-## A reading from the book of the prophet Isaiah.
+## A reading from the book of the prophet Isaiah.
 
 The people who walked in darkness have seen a great light;
 those who lived in a land of deep darkness - on them light has shined.
@@ -38,7 +38,7 @@ The zeal of the Lord of hosts will do this.
 
 # RESPONSORIAL PSALM (From Ps 96)
 
-## Response: This night our Saviour is born for us.
+## Response: This night our Saviour is born for us.
 
 1.\ Sing a new song to the Lord,\
 sing to the Lord all the earth.\
@@ -50,7 +50,7 @@ tell the nations his glory.\
 With justice he will rule the world,\
 he will judge the peoples with his truth. ***R.***
 
-# SECOND READING (Titus 2: 11-14)
+# SECOND READING (Titus 2: 11-14)
 
 ## A reading from the letter of Paul to Titus.
 

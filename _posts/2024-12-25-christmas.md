@@ -31,7 +31,7 @@ all the ends of the earth shall see the salvation of our God.
 
 # RESPONSORIAL PSALM (From Ps 98)
 
-## Response: All the ends of the earth have seen the salvation of God.
+## Response: All the ends of the earth have seen the salvation of God.
 
 1\. Sing a new song to the Lord\
 for he has worked wonders.\

@@ -57,9 +57,9 @@ Who will contend with me? Let us stand up together.\
 Who are my adversaries? Let them confront me.\
 It is the Lord God who helps me; who will declare me guilty?
 
-# RESPONSORIAL PSALM (From Psalm 31)
+# RESPONSORIAL PSALM (From Psalm 31)
 
-## Response: Save me in your steadfast love.
+## Response: Save me in your steadfast love.
 
 1\. Be gracious to me O Lord, for I am in distress,\
 my eye wastes away from grief,\
@@ -84,7 +84,7 @@ Deliver me from the hand of my persecutors.\
 Let your face shine upon your servant;\
 Save me in your steadfast love. ***R.***
 
-# SECOND READING (Philippians 2: 5-11)
+# SECOND READING (Philippians 2: 5-11)
 
 ## A reading from the letter of Paul to the Philippians.
 

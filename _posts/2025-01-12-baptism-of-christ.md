@@ -3,7 +3,7 @@ Hymns NEH 56, 58, 137, 393
 **St Michael and All Angels -- a Parish under the Patronage of Our Lady
 of Walsingham**
 
-# COLLECT
+# COLLECT
 
 Eternal Father, who at the baptism of Jesus revealed him to be your Son,
 anointing him with the Holy Spirit:
@@ -14,7 +14,7 @@ faithful to our calling as your adopted children;
 through Jesus Christ your Son our Lord, who is alive and reigns with
 you, in the unity of the Holy Spirit, one God, now and for ever. Amen.
 
-# FIRST READING (Isaiah 43: 1-7)
+# FIRST READING (Isaiah 43: 1-7)
 
 ## A reading from the prophet Isaiah.
 
@@ -38,7 +38,7 @@ called by my name, whom I created for my glory, whom I formed and made.'
 
 # RESPONSORIAL PSALM (From Ps 29)
 
-## Response: The Lord sits as king for ever.
+## Response: The Lord sits as king for ever.
 
 1\. Give the Lord the glory of his name,\
 adore the Lord in his holy court.\
@@ -50,7 +50,7 @@ The voice of the Lord full of splendour.\
 The Lord sat enthroned over the flood;\
 the Lord on the immensity of the waters. ***R.***
 
-# SECOND READING (Acts 8: 14-17)
+# SECOND READING (Acts 8: 14-17)
 
 # A reading from the Acts of the Apostles.
 

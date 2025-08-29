@@ -33,7 +33,7 @@ veil on his face again, until he went in to speak with him.
 
 # RESPONSORIAL READING (From Isaiah 43)
 
-## Response: I will make a way in the wilderness, and rivers in the desert.
+## Response: I will make a way in the wilderness, and rivers in the desert.
 
 1\. I am the Lord, your Holy One,\
 the Creator of Israel, your king.\

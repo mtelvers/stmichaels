@@ -74,7 +74,7 @@ in the service of God, to make a sacrifice of atonement for the sins of
 the people. Because he himself was tested by what he suffered, he is
 able to help those who are being tested.
 
-# HOLY GOSPEL (Luke 2: 22-40)
+# HOLY GOSPEL (Luke 2: 22-40)
 
 When the time came for their purification according to the law of Moses,
 they brought him up to Jerusalem to present him to the Lord (as it is
