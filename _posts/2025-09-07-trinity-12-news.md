@@ -1,8 +1,8 @@
 
 Priest-in-Charge Fr John Ainslie ([revjohnainslie@gmail.com](mailto:revjohnainslie@gmail.com); 01628 629827)
 
-    A very warm welcome to any new readers, and to visitors and newcomers to St Michael's.
-                       Do please join us for Tea, Coffee, and Cake after the service !!
+A very warm welcome to any new readers, and to visitors and newcomers to St Michael's.
+Do please join us for Tea, Coffee, and Cake after the service !!
 
 Services this week: Thursday, Said Mass 10.30am; next Sunday Sung Mass 10.30am. All services followed by Tea,
 Coffee and Cake. Do join us !!
@@ -48,5 +48,6 @@ generations, and we pray for those whose year’s mind occurs this week: John Ro
 FROM THE BELLTOWER: Sunday, 3 August 2025, 1280 Rutland Surprise Major 1 Rupert Cheeseman 2 Jane L
 Kostelnyk 3 Jacqueline Barlow 4 Charlotte Elvers 5 Stephen Coaker (C) 6 Mark Elvers 7 Philip Jarvis 8 Neil Jones
 Remembering Paul Jones, 1/8/25, R.I.P. A faithful member of this church.
+
 SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
 [www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)

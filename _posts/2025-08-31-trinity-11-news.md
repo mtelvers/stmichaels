@@ -2,7 +2,7 @@
 Priest-in-Charge Fr John Ainslie ([revjohnainslie@gmail.com](mailto:revjohnainslie@gmail.com); 01628 629827)
 
 A very warm welcome to any new readers, and to visitors and newcomers to St Michael's. Do please join us
-                                    for Tea, Coffee, and Cake after the service !!
+for Tea, Coffee, and Cake after the service !!
 
 Services this week: Thursday, Said Mass 10.30am; next Saturday Mass of Our Lady 10.30am; next Sunday Sung
 Mass 10.30am. All services followed by Tea, Coffee and Cake. Do join us !!
@@ -46,5 +46,6 @@ Burbridge, Edna Francis.
 FROM THE BELLTOWER: Sunday 24 August 1260 Grandsire Triples 1 Michael A Birkbeck 2 Callum Clark 3
 George Marks 4 Jacqueline M Barlow 5 Emma Jarvis 6 Svetlana Sokolova 7 Philip Jarvis (C) 8 Mark Elvers
 Rung for the Feast of St Bartholomew The Apostle. Remembering Father Paul Gibbons 23/08/22 R.I.P.
+
 SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
 [www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)
