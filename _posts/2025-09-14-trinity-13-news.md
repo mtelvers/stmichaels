@@ -1,8 +1,8 @@
 
 Priest-in-Charge Fr John Ainslie ([revjohnainslie@gmail.com](mailto:revjohnainslie@gmail.com); 01628 629827)
 
-    A very warm welcome to any new readers, and to visitors and newcomers to St Michael's.
-                       Do please join us for Tea, Coffee, and Cake after the service !!
+A very warm welcome to any new readers, and to visitors and newcomers to St Michael's.
+Do please join us for Tea, Coffee, and Cake after the service !!
 
 Services this week: Thursday, Said Mass 10.30am; next Sunday Sung Mass 10.30am, to celebrate the Feast of Our
 Lady of Walsingham, with Holy Baptism. All services followed by Tea, Coffee and Cake. Do join us !!
@@ -39,5 +39,6 @@ Friday, 5 September 1440 Spliced Surprise Minor (2m) 720 Cambridge Surprise Mino
 10 combinations. 1 E Lesley Barclay 2 Jacqueline Barlow 3 Jane Kostelnyk 4 Kath White 5 Mark Elvers 6 Stephen
 Coaker (C)
 With best wishes for a speedy recovery to Ann Jenner, Shirley McGill and Pam Thomas.
+
 SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
 [www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)

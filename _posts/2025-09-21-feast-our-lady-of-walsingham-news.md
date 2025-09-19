@@ -1,8 +1,8 @@
 
 Priest-in-Charge Fr John Ainslie ([revjohnainslie@gmail.com](mailto:revjohnainslie@gmail.com); 01628 629827)
 
-  This morning we give a very warm welcome to Eva and Martha, and to their
-        family and friends. Do join them after Mass in the Vestry Hall.
+This morning we give a very warm welcome to Eva and Martha, and to their
+family and friends. Do join them after Mass in the Vestry Hall.
 
 Services this week: Thursday, Said Mass 10.30am
 
@@ -49,5 +49,6 @@ occurs this week: Phylis Evelyn O’Brien, Stanley Payne.
 
 FROM THE BELLTOWER: 13 September 1260 Plain Bob Minor 1 Jacqueline M Barlow 2 Charlotte Elvers 3
 Emma Jarvis 4 Mark Elvers 5 Callum Clark 6 Philip Jarvis (C) Rung on Heritage Day and for Ride and Stride.
+
 SUPPORT ST MICHAELS: to make a donation towards the work and worship of St Michael's Church go to:
 [www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/](www.parishgiving.org.uk/donors/find-your-parish/maidstone-st-michael-and-aa-maidstone/)
